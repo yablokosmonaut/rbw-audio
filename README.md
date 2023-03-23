@@ -1,5 +1,5 @@
-1. [Audio](#rbw-audio)
-2. [Keyboards](#rbw-keebs)
+| Quick navigation | 1. [Audio](#rbw-audio) | 2. [Keyboards](#rbw-keebs) | 3. [Hardware](#rbw-hw) |
+| - | - | - | - |
 
 # rbw-audio
 Rattlingblanketwoman's audio classifieds
@@ -50,3 +50,15 @@ Rattlingblanketwoman's mechanical keyboard classifieds
 
 * Same rules/guidelines as the [audio classifieds](#rbw-audio), read above.
 * Listings coming soon for this section.
+
+___
+
+# rbw-hw
+Rattlingblanketwoman's mechanical keyboard classifieds
+
+* Same rules/guidelines as the [audio classifieds](#rbw-audio), read above.
+* Listings coming soon for this section.
+
+* <a href=""></a> |$ |
+
+* <a href=""></a> |$ |
