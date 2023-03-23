@@ -1,5 +1,5 @@
 # rbw-audio
-Rattlingblanketwoman's classifieds
+Rattlingblanketwoman's audio classifieds
 
 This is audio gear I have for sale.
 * Pricing is firm, and is PayPal **F&F**
@@ -10,7 +10,30 @@ This is audio gear I have for sale.
 
 ___
 
-# Headphones
+## Headphones
 
-* VE Pro Supernova |$50| You can see where the headstrap contacts the cups, no other visible wear to note.
-* Sennheiser HD
+* <a href="https://photos.app.goo.gl/tbgVABTy5Py1hca5A">VE Pro Supernova</a> |$50| You can see where the headstrap contacts the cups, no other visible wear to note. Pictured with Brainwavz perforated pads ($20 extra) either way comes with stock pads.
+* <a href="https://photos.app.goo.gl/tbgVABTy5Py1hca5A">Sennheiser HD560S</a> |$100| In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
+
+## IEMS
+
+* <a href=""></a> |$ |
+
+* <a href=""></a> |$ |
+
+* <a href=""></a> |$ |
+
+## Sources (DAC/DAP/AMP)
+
+* <a href=""></a> |$ |
+
+* <a href=""></a> |$ |
+
+* <a href=""></a> |$ |
+___
+
+# rbw-keebs
+Rattlingblanketwoman's mechanical keyboard classifieds
+
+* Same rules/guidelines as the audio classifieds, read above.
+* Listings coming soon for this section.
