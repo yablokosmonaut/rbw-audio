@@ -1,3 +1,6 @@
+1. [Audio](#rbw-audio)
+2. [Keyboards](#rbw-keebs)
+
 # rbw-audio
 Rattlingblanketwoman's audio classifieds
 
@@ -45,5 +48,5 @@ ___
 # rbw-keebs
 Rattlingblanketwoman's mechanical keyboard classifieds
 
-* Same rules/guidelines as the audio classifieds, read above.
+* Same rules/guidelines as the [audio classifieds](#rbw-audio), read above.
 * Listings coming soon for this section.
