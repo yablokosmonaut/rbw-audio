@@ -15,17 +15,27 @@ ___
 * <a href="https://photos.app.goo.gl/tbgVABTy5Py1hca5A">VE Pro Supernova</a> |$50| You can see where the headstrap contacts the cups, no other visible wear to note. Pictured with Brainwavz perforated pads ($20 extra) either way comes with stock pads.
 * <a href="https://photos.app.goo.gl/tbgVABTy5Py1hca5A">Sennheiser HD560S</a> |$100| In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
 
-## IEMS
+## IEMs and earbuds
 
-* <a href=""></a> |$ |
+* <a href="">ISN EST50</a> |$320| Green on black facebplates, comes with stock cable and stock carry case, condition is excellent.</a>
 
-* <a href=""></a> |$ |
+* <a href="">Yanyin Canon</a> |$220| Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
+
+* <a href="">Penon Fan OG</a> |$55| Stock accessories (cable, tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.
+
+* <a href="">RikuBuds Grand Archer</a> |$55|
 
 * <a href=""></a> |$ |
 
 ## Sources (DAC/DAP/AMP)
 
 * <a href=""></a> |$ |
+
+* <a href=""></a> |$ |
+
+* <a href=""></a> |$ |
+
+## Wireless buds and TWS
 
 * <a href=""></a> |$ |
 
