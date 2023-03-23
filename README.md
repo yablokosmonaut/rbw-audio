@@ -1,26 +1,31 @@
-| Quick navigation | 1. [Audio](#rbw-audio) | 2. [Keyboards](#rbw-keebs) | 3. [Hardware](#rbw-hw) |
-| - | - | - | - |
+| Quick navigation | 1. [Guidelines](#guidelines) | 2. [Audio](#rbw-audio) | 3. [Keyboards](#rbw-keebs) | 4. [Hardware](#rbw-hw) |
+| - | - | - | - | - |
 
-# rbw-audio
-Rattlingblanketwoman's audio classifieds
+___
+# guidelines
 
-This is audio gear I have for sale.
-* Pricing is firm, and is PayPal **F&F**
+* Pricing is firm, and is through PayPal **F&F**
 * CONUS shipping is included (cheapest USPS option)
 * Items are linked to photo albums
 * 56 confirmed trades on /avexchange as of 3/23/23. <a href="https://www.reddit.com/message/compose/?to=AVexchangeBot&subject=Feedback%20Check&message=Enter%20username%20below%20that%20you%20want%20to%20check:%0A%0Au/rattlingblanketwoman">(Check with AVExchangeBot now)</a>
 * 47 confirmed trades on Head-Fi as of 3/23/23. <a href="https://www.head-fi.org/members/rattlingblanketwoman.535939/#classifieds-feedback">(Read feedback here)</a>
+* 24 confirmed trades on /hardwareswap as of 3/23/23.
+* 40 confirmed trades on /mechmarket as of 3/23/23.
 
 ___
 
+# rbw-audio
+Rattlingblanketwoman's audio classifieds
+
 ## Headphones
 
-* <a href="https://photos.app.goo.gl/tbgVABTy5Py1hca5A">VE Pro Supernova</a> |$50| You can see where the headstrap contacts the cups, no other visible wear to note. Pictured with Brainwavz perforated pads ($20 extra) either way comes with stock pads.
-* <a href="https://photos.app.goo.gl/tbgVABTy5Py1hca5A">Sennheiser HD560S</a> |$100| In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
+* [VE Pro Super Nova](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$50** You can see where the headstrap contacts the cups, no other visible wear to note. Pictured with Brainwavz perforated pads ($20 extra) either way comes with stock pads.
+* [Sennheiser HD560S](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$100** In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
+* [Fostex TR50P Modhouse Argon Mk3](https://photos.app.goo.gl/ZSPBEwcvUwK98oDj9) **$240** Sad to let these go, but with what's needed to drive them and their slim use cases (have to be at a desk) they are not in budget. Has stock protein pads, ZMF protein pads, orange cable with 3.5mm termination, black cable with 1/4 inch termination, 3.5mm-1/4 inch adapter, and Alcantara suspension band. Box too. Condition may as well be open box.
 
 ## IEMs and earbuds
 
-* <a href="">ISN EST50</a> |$320| Green on black facebplates, comes with stock cable and stock carry case, condition is excellent.</a>
+* [ISN EST50](https://photos.app.goo.gl/eucG7ZPQwoKagKNm7) **$320** Green on black stabilized wood faceplates, comes with stock cable and stock carry case, condition is excellent. Just a little too colored to be my EDC, and too expensive to keep alongside another set. I think they're a fantastically tuned bassy set, they remind me a lot of the Xenns Up. Smooth, spacious, and bass guitars never sounded so good.
 
 * <a href="">Yanyin Canon</a> |$220| Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
 
