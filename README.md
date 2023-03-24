@@ -27,35 +27,36 @@ Rattlingblanketwoman's audio classifieds
 
 * [ISN EST50](https://photos.app.goo.gl/eucG7ZPQwoKagKNm7) **$320** Green on black stabilized wood faceplates, comes with stock cable and stock carry case, condition is excellent. Just a little too colored to be my EDC, and too expensive to keep alongside another set. I think they're a fantastically tuned bassy set, they remind me a lot of the Xenns Up. Smooth, spacious, and bass guitars never sounded so good.
 
-* <a href="">Yanyin Canon</a> |$220| Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
+* [Yanyin Canon]() **$220** Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
 
-* <a href="">Penon Fan OG</a> |$55| Stock accessories (cable, tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.
+* [Penon Fan OG]() **$55** Stock accessories (cable, tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.
 
-* <a href="">RikuBuds Grand Archer</a> |$55|
+* [RikuBuds Grand Archer]() **$50**
 
-* <a href=""></a> |$ |
+* [Item](url) **$777**
 
 ## Sources (DAC/DAP/AMP)
 
-* <a href=""></a> |$ |
+* [Item](url) **$777**
 
-* <a href=""></a> |$ |
+* [Item](url) **$777**
 
-* <a href=""></a> |$ |
+* [Item](url) **$777**
 
 ## Wireless buds and TWS
 
-* <a href=""></a> |$ |
+* [Item](url) **$777**
 
-* <a href=""></a> |$ |
+* [Item](url) **$777**
 ___
 
 # rbw-keebs
 Rattlingblanketwoman's mechanical keyboard classifieds
 
-* Same rules/guidelines as the [audio classifieds](#rbw-audio), read above.
+* Same [rules/guidelines](#guidelines) as above.
 * Listings coming soon for this section.
 
+* [Item](url) **$777**
 ___
 
 # rbw-hw
@@ -64,6 +65,6 @@ Rattlingblanketwoman's mechanical keyboard classifieds
 * Same rules/guidelines as the [audio classifieds](#rbw-audio), read above.
 * Listings coming soon for this section.
 
-* <a href=""></a> |$ |
+* [Item](url) **$777**
 
-* <a href=""></a> |$ |
+* [Item](url) **$777**
