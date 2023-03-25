@@ -7,10 +7,16 @@ ___
 * Pricing is firm, and is through PayPal **F&F**
 * CONUS shipping is included (cheapest USPS option)
 * Items are linked to photo albums
+
+I understand F&F can be an trust issue and fully respect anyone's decision to avoid trading when they see it. For any open to persuasion on a case by case basis, I can at least offer the following assurances:
 * 56 confirmed trades on /avexchange as of 3/23/23. <a href="https://www.reddit.com/message/compose/?to=AVexchangeBot&subject=Feedback%20Check&message=Enter%20username%20below%20that%20you%20want%20to%20check:%0A%0Au/rattlingblanketwoman">(Check with AVExchangeBot now)</a>
 * 47 confirmed trades on Head-Fi as of 3/23/23. <a href="https://www.head-fi.org/members/rattlingblanketwoman.535939/#classifieds-feedback">(Read feedback here)</a>
 * 24 confirmed trades on /hardwareswap as of 3/23/23.
 * 40 confirmed trades on /mechmarket as of 3/23/23.
+* Mercari [profile](https://www.mercari.com/u/604653000/?sv=0)
+* eBay [profile](https://www.ebay.com/fdbk/feedback_profile/guybrushthriftwood)(fairly recent with eBay US, I am from the UK originally so I have much longer feedback with my [eBay UK account](https://www.ebay.co.uk/usr/yablokosmonaut#tab1) which I continued to use in the US for almost 10 years. I made the US account when I realized why no eBay US discount codes were working for me.)
+
+* See something you like? I am on [HiFiGuides](https://forum.hifiguides.com/u/rattlingblanketwoman/), [reddit](https://www.reddit.com/user/rattlingblanketwoman), and [Head-Fi](https://www.head-fi.org/members/rattlingblanketwoman.535939/). For email use [rbwclassifieds@gmail.com](mailto:rbwclassifieds@gmail.com).
 
 ___
 
@@ -21,7 +27,7 @@ Rattlingblanketwoman's audio classifieds
 
 * [VE Pro Super Nova](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$50** You can see where the headstrap contacts the cups, no other visible wear to note. Pictured with Brainwavz perforated pads ($20 extra) either way comes with stock pads.
 * [Sennheiser HD560S](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$100** In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
-* [Fostex TR50P Modhouse Argon Mk3](https://photos.app.goo.gl/ZSPBEwcvUwK98oDj9) **$240** Sad to let these go, but with what's needed to drive them and their slim use cases (have to be at a desk) they are not in budget. Has stock protein pads, ZMF protein pads, orange cable with 3.5mm termination, black cable with 1/4 inch termination, 3.5mm-1/4 inch adapter, and Alcantara suspension band. Box too. Condition may as well be open box.
+* [Fostex TR50P Modhouse Argon Mk3](https://photos.app.goo.gl/ZSPBEwcvUwK98oDj9) **$240** Sad to let these go, but with what's needed to drive them and rare use cases (have to be at a desk) they are not in budget. Has stock protein pads, ZMF protein pads, orange cable with 3.5mm termination, black cable with 1/4 inch termination, 3.5mm-1/4 inch adapter, and Alcantara suspension band. Box too. Condition may as well be open box.
 
 ## IEMs and earbuds
 
@@ -29,34 +35,54 @@ Rattlingblanketwoman's audio classifieds
 
 * [Yanyin Canon]() **$220** Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
 
-* [Penon Fan OG]() **$55** Stock accessories (cable, tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.
+* [Penon Fan OG](https://photos.app.goo.gl/6GgVLTAdEYEJDRnu9) **$55** Stock accessories (cable, *many* tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.
 
-* [RikuBuds Grand Archer]() **$50**
-
-* [Item](url) **$777**
+* [RikuBuds Grand Archer](https://photos.app.goo.gl/kxguAzdZojaSXTPe6) **$50** I consider this one of the biggest deals listed here. These are incredible buds. They are described as being upper-mid and treble focused but I feel like they cover the full spectrum very well.
 
 ## Sources (DAC/DAP/AMP)
 
-* [Item](url) **$777**
+* [iFi Zen Blue DAC](https://photos.app.goo.gl/eutGcHVXjHG9RtwX6) **$100** I don't use any gear right now that would justify a dedicated DAC/AMP. Excellent condition, box, antenna, 5V power brick.
 
-* [Item](url) **$777**
+* [Monolith Liquid Spark Amp](https://photos.app.goo.gl/dSwDT9X18w692ETG6) **$60** (combine with the OLDAC for $110) No blemishes or issues to mention, comes with power brick.
 
-* [Item](url) **$777**
+* [JDS Labs OLDAC](https://photos.app.goo.gl/CNLPwkNJEqtc8sv8A) **$55** (combine with Liquid Spark for $110) No blemishes or issues to mention, comes with power brick.
+
+* [DDHifi TC35i](https://photos.app.goo.gl/43QPkJmXT6KmD7LG8) **$15** It's an adapter, it works well.
+
+* [LG V35 ThinQ](https://photos.app.goo.gl/Xq4W9vszGpKT8Mmx5) **$55** It is an AT&T model, but can be flashed to an unbranded firmware or debloated using ADB commands. Battery life is great. Slight burn-in shown by nav bar, hence the photo of the "settings" screen to show shades of white. Overall very good condition indeed. There is nothing stopping this being used as phone/camera besides an excellent responsive DAP with a quad-DAC.
+
+* [VentureCraft SounDroid Valoq](https://photos.app.goo.gl/tNeHFZK1dJbrDr2c9) **$120** I would recommend a new battery for this (circa $20 on AliX). A really fun player, a very firm power/volume knob, a jog wheel for navigation, balanced output, *very* sturdy, op-amps can be easily swapped using a hatch in the back. Condition is showing wear, including scuffs to the screen. Hopefully it goes to a collector who plans to use it. AKM4490 chip.
 
 ## Wireless buds and TWS
 
-* [Item](url) **$777**
+* [MiFo O7](https://photos.app.goo.gl/pZBkQknoXNLvUX7D7) **$50** These are the version with the CNT dinamic driver. I highly recommend them for sound, comfort, and quality of build. The case alone is a step up from competitors. Comes with accessories incl. charge cable, box, tips.
 
-* [Item](url) **$777**
+* [Aukey EP-T32](https://photos.app.goo.gl/yaqeC9pqAcpjELPC6) **$15** Box, case, tips included, no cable. Powerbeats Pro form factor.
+
+* [Apple/Beats Studio Buds](https://photos.app.goo.gl/4rFZyWe31RJEZMLc7) **$45** Excellent condition, no tips but I can try to find something generic to include. As shown, warranty is active until 9/7/23.
+
+* [Sony MDR-EX750BT](https://photos.app.goo.gl/mPvRYiphxaFogBMp8) **25** This form-factor has fallen out of vogue but it's actually still very practical/comfortable. Easy to take buds out and put them back in without keeping track of them. Appearance *and* sound remind me of MH750MH755, which is hinted at in the model name too.
 ___
 
 # rbw-keebs
 Rattlingblanketwoman's mechanical keyboard classifieds
 
 * Same [rules/guidelines](#guidelines) as above.
-* Listings coming soon for this section.
 
-* [Item](url) **$777**
+## Completes
+
+* [Keychron K8 Pro TKL](https://photos.app.goo.gl/WCrqk3opXa7P7sti9) **$75** QMK/VIA compatible, stock red switches (factory lubed), wireless via dongle or Bluetooth, Win/Mac modes, very solidly built w/ aluminum frame. Condition is excellent.
+
+* [Epomaker TH-66 Pro](https://photos.app.goo.gl/1ZNbKphY8qrFD32F8) **$70** Completely unused (open box) with **3** choices of knob total. Comes with Monet MDA V2 keycap set, and the Flamingo linear switches. Stock cable and everything it would usually come with.
+
+## Switches
+
+* 67 * Gazzew [Boba U4](https://photos.app.goo.gl/9QPnogSkxqiarfp16) **$30** Puts these at <50¢ per switch.
+
+## Keycaps
+
+* [DEV/TTY MT3](https://photos.app.goo.gl/3b7hkpY2NbFyqm119) **$55** ABS, complete base set, I never used them because I thought all MT3 sets were PBT.
+
 ___
 
 # rbw-hw
@@ -65,6 +91,6 @@ Rattlingblanketwoman's mechanical keyboard classifieds
 * Same rules/guidelines as the [audio classifieds](#rbw-audio), read above.
 * Listings coming soon for this section.
 
-* [Item](url) **$777**
+* [Item](url) **$price**
 
-* [Item](url) **$777**
+* [Item](url) **$price**
