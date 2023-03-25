@@ -23,13 +23,13 @@ ___
 # rbw-audio
 Rattlingblanketwoman's audio classifieds
 
-## Headphones
+### Headphones
 
 * [VE Pro Super Nova](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$50** You can see where the headstrap contacts the cups, no other visible wear to note. Pictured with Brainwavz perforated pads ($20 extra) either way comes with stock pads.
 * [Sennheiser HD560S](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$100** In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
 * [Fostex TR50P Modhouse Argon Mk3](https://photos.app.goo.gl/ZSPBEwcvUwK98oDj9) **$240** Sad to let these go, but with what's needed to drive them and rare use cases (have to be at a desk) they are not in budget. Has stock protein pads, ZMF protein pads, orange cable with 3.5mm termination, black cable with 1/4 inch termination, 3.5mm-1/4 inch adapter, and Alcantara suspension band. Box too. Condition may as well be open box.
 
-## IEMs and earbuds
+### IEMs and earbuds
 
 * [ISN EST50](https://photos.app.goo.gl/eucG7ZPQwoKagKNm7) **$320** Green on black stabilized wood faceplates, comes with stock cable and stock carry case, condition is excellent. Just a little too colored to be my EDC, and too expensive to keep alongside another set. I think they're a fantastically tuned bassy set, they remind me a lot of the Xenns Up. Smooth, spacious, and bass guitars never sounded so good.
 
@@ -39,7 +39,7 @@ Rattlingblanketwoman's audio classifieds
 
 * [RikuBuds Grand Archer](https://photos.app.goo.gl/kxguAzdZojaSXTPe6) **$50** I consider this one of the biggest deals listed here. These are incredible buds. They are described as being upper-mid and treble focused but I feel like they cover the full spectrum very well.
 
-## Sources (DAC/DAP/AMP)
+### Sources (DAC/DAP/AMP)
 
 * [iFi Zen Blue DAC](https://photos.app.goo.gl/eutGcHVXjHG9RtwX6) **$100** I don't use any gear right now that would justify a dedicated DAC/AMP. Excellent condition, box, antenna, 5V power brick.
 
@@ -53,7 +53,7 @@ Rattlingblanketwoman's audio classifieds
 
 * [VentureCraft SounDroid Valoq](https://photos.app.goo.gl/tNeHFZK1dJbrDr2c9) **$120** I would recommend a new battery for this (circa $20 on AliX). A really fun player, a very firm power/volume knob, a jog wheel for navigation, balanced output, *very* sturdy, op-amps can be easily swapped using a hatch in the back. Condition is showing wear, including scuffs to the screen. Hopefully it goes to a collector who plans to use it. AKM4490 chip.
 
-## Wireless buds and TWS
+### Wireless buds and TWS
 
 * [MiFo O7](https://photos.app.goo.gl/pZBkQknoXNLvUX7D7) **$50** These are the version with the CNT dinamic driver. I highly recommend them for sound, comfort, and quality of build. The case alone is a step up from competitors. Comes with accessories incl. charge cable, box, tips.
 
@@ -69,17 +69,17 @@ Rattlingblanketwoman's mechanical keyboard classifieds
 
 * Same [rules/guidelines](#guidelines) as above.
 
-## Completes
+### Completes
 
 * [Keychron K8 Pro TKL](https://photos.app.goo.gl/WCrqk3opXa7P7sti9) **$75** QMK/VIA compatible, stock red switches (factory lubed), wireless via dongle or Bluetooth, Win/Mac modes, very solidly built w/ aluminum frame. Condition is excellent.
 
 * [Epomaker TH-66 Pro](https://photos.app.goo.gl/1ZNbKphY8qrFD32F8) **$70** Completely unused (open box) with **3** choices of knob total. Comes with Monet MDA V2 keycap set, and the Flamingo linear switches. Stock cable and everything it would usually come with.
 
-## Switches
+### Switches
 
 * 67 * Gazzew [Boba U4](https://photos.app.goo.gl/9QPnogSkxqiarfp16) **$30** Puts these at <50¢ per switch.
 
-## Keycaps
+### Keycaps
 
 * [DEV/TTY MT3](https://photos.app.goo.gl/3b7hkpY2NbFyqm119) **$55** ABS, complete base set, I never used them because I thought all MT3 sets were PBT.
 
