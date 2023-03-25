@@ -77,7 +77,7 @@ Rattlingblanketwoman's mechanical keyboard classifieds
 
 ### Switches
 
-* 67 * Gazzew [Boba U4](https://photos.app.goo.gl/9QPnogSkxqiarfp16) **$30** Puts these at <50¢ per switch.
+* [Gazzew Boba U4](https://photos.app.goo.gl/9QPnogSkxqiarfp16) **$30** for 67. Puts these at <50¢ per switch.
 
 ### Keycaps
 
