@@ -86,7 +86,7 @@ Rattlingblanketwoman's mechanical keyboard classifieds
 ___
 
 # rbw-hw
-Rattlingblanketwoman's mechanical keyboard classifieds
+Rattlingblanketwoman's hardware classifieds
 
 * Same rules/guidelines as the [audio classifieds](#rbw-audio), read above.
 * Listings coming soon for this section.
