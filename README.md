@@ -16,7 +16,7 @@ I understand F&F can be an trust issue and fully respect anyone's decision to av
 * Mercari [profile](https://www.mercari.com/u/604653000/?sv=0)
 * eBay [profile](https://www.ebay.com/fdbk/feedback_profile/guybrushthriftwood)(fairly recent with eBay US, I am from the UK originally so I have much longer feedback with my [eBay UK account](https://www.ebay.co.uk/usr/yablokosmonaut#tab1) which I continued to use in the US for almost 10 years. I made the US account when I realized why no eBay US discount codes were working for me.)
 
-* See something you like? I am on [HiFiGuides](https://forum.hifiguides.com/u/rattlingblanketwoman/), [reddit](https://www.reddit.com/user/rattlingblanketwoman), and [Head-Fi](https://www.head-fi.org/members/rattlingblanketwoman.535939/). For email use [rbwclassifieds@gmail.com](mailto:rbwclassifieds@gmail.com).
+* **Contact** to buy or ask questions: I am on [HiFiGuides](https://forum.hifiguides.com/u/rattlingblanketwoman/), [reddit](https://www.reddit.com/user/rattlingblanketwoman), and [Head-Fi](https://www.head-fi.org/members/rattlingblanketwoman.535939/). For email use [rbwclassifieds@gmail.com](mailto:rbwclassifieds@gmail.com).
 
 ___
 
