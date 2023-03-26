@@ -4,19 +4,20 @@
 ___
 # guidelines
 
-* Pricing is firm, and is through PayPal **F&F**
+* Pricing is firm, and is through PayPal **F&F**.
 * CONUS shipping is included (cheapest USPS option)
 * Items are linked to photo albums
 
 I understand F&F can be an trust issue and fully respect anyone's decision to avoid trading when they see it. For any open to persuasion on a case by case basis, I can at least offer the following assurances:
+
 * 56 confirmed trades on /avexchange as of 3/23/23. <a href="https://www.reddit.com/message/compose/?to=AVexchangeBot&subject=Feedback%20Check&message=Enter%20username%20below%20that%20you%20want%20to%20check:%0A%0Au/rattlingblanketwoman">(Check with AVExchangeBot now)</a>
 * 47 confirmed trades on Head-Fi as of 3/23/23. <a href="https://www.head-fi.org/members/rattlingblanketwoman.535939/#classifieds-feedback">(Read feedback here)</a>
 * 24 confirmed trades on /hardwareswap as of 3/23/23.
 * 40 confirmed trades on /mechmarket as of 3/23/23.
 * Mercari [profile](https://www.mercari.com/u/604653000/?sv=0)
-* eBay [profile](https://www.ebay.com/fdbk/feedback_profile/guybrushthriftwood)(fairly recent with eBay US, I am from the UK originally so I have much longer feedback with my [eBay UK account](https://www.ebay.co.uk/usr/yablokosmonaut#tab1) which I continued to use in the US for almost 10 years. I made the US account when I realized why no eBay US discount codes were working for me.)
+* eBay [profile](https://www.ebay.com/fdbk/feedback_profile/guybrushthriftwood) (fairly recent with eBay US, much longer feedback with my [eBay UK account](https://www.ebay.co.uk/usr/yablokosmonaut#tab1) which I continued to use in the US for almost 10 years. I made the US account US discount codes would work.)
 
-* **Contact** to buy or ask questions: I am on [HiFiGuides](https://forum.hifiguides.com/u/rattlingblanketwoman/), [reddit](https://www.reddit.com/user/rattlingblanketwoman), and [Head-Fi](https://www.head-fi.org/members/rattlingblanketwoman.535939/). For email use [rbwclassifieds@gmail.com](mailto:rbwclassifieds@gmail.com).
+📬 **Contact** to buy or ask questions: I am on [HiFiGuides](https://forum.hifiguides.com/u/rattlingblanketwoman/), [reddit](https://www.reddit.com/user/rattlingblanketwoman), and [Head-Fi](https://www.head-fi.org/members/rattlingblanketwoman.535939/). For email use [rbwclassifieds@gmail.com](mailto:rbwclassifieds@gmail.com).
 
 ___
 
@@ -27,7 +28,7 @@ Rattlingblanketwoman's audio classifieds
 
 * [VE Pro Super Nova](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$50** You can see where the headstrap contacts the cups, no other visible wear to note. Pictured with Brainwavz perforated pads ($20 extra) either way comes with stock pads.
 * [Sennheiser HD560S](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$100** In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
-* [Fostex TR50P Modhouse Argon Mk3](https://photos.app.goo.gl/ZSPBEwcvUwK98oDj9) **$240** Sad to let these go, but with what's needed to drive them and rare use cases (have to be at a desk) they are not in budget. Has stock protein pads, ZMF protein pads, orange cable with 3.5mm termination, black cable with 1/4 inch termination, 3.5mm-1/4 inch adapter, and Alcantara suspension band. Box too. Condition may as well be open box.
+* [Fostex TR50P Modhouse Argon Mk3](https://photos.app.goo.gl/ZSPBEwcvUwK98oDj9) **$250** Sad to let these go, but with what's needed to drive them and rare use cases (have to be at a desk) they are not in budget. Has stock protein pads, ZMF protein pads, orange cable with 3.5mm termination, black cable with 1/4 inch termination, 3.5mm-1/4 inch adapter, and Alcantara suspension band. Box too. Condition may as well be open box.
 
 ### IEMs and earbuds
 
