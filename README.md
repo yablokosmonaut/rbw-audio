@@ -63,7 +63,7 @@ Rattlingblanketwoman's audio classifieds
 * [Apple/Beats Studio Buds](https://photos.app.goo.gl/4rFZyWe31RJEZMLc7) **$45** Excellent condition, no tips but I can try to find something generic to include. As shown, warranty is active until 9/7/23.
 
 * [Sony MDR-EX750BT](https://photos.app.goo.gl/mPvRYiphxaFogBMp8) **$25** This form-factor has fallen out of vogue but it's actually still very practical/comfortable. Easy to take buds out and put them back in without keeping track of them. Appearance *and* sound remind me of MH750MH755, which is hinted at in the model name too.
-****
+
 ___
 
 # rbw-keebs
