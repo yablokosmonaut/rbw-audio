@@ -33,7 +33,7 @@ Rattlingblanketwoman's audio classifieds
 
 * [ISN EST50](https://photos.app.goo.gl/eucG7ZPQwoKagKNm7) **$320** Green on black stabilized wood faceplates, comes with stock cable and stock carry case, condition is excellent. Just a little too colored to be my EDC, and too expensive to keep alongside another set. I think they're a fantastically tuned bassy set, they remind me a lot of the Xenns Up. Smooth, spacious, and bass guitars never sounded so good.
 
-* [Yanyin Canon]() **$220** Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
+* [Yanyin Canon](https://photos.app.goo.gl/xN6XJmoUeKBPmnaW7) **$220** Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
 
 * [Penon Fan OG](https://photos.app.goo.gl/6GgVLTAdEYEJDRnu9) **$55** Stock accessories (cable, *many* tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.
 
@@ -55,13 +55,14 @@ Rattlingblanketwoman's audio classifieds
 
 ### Wireless buds and TWS
 
-* [MiFo O7](https://photos.app.goo.gl/pZBkQknoXNLvUX7D7) **$50** These are the version with the CNT dinamic driver. I highly recommend them for sound, comfort, and quality of build. The case alone is a step up from competitors. Comes with accessories incl. charge cable, box, tips.
+* [Mifo O7](https://photos.app.goo.gl/pZBkQknoXNLvUX7D7) **$50** These are the version with the CNT dinamic driver. I highly recommend them for sound, comfort, and quality of build. The case alone is a step up from competitors. Comes with accessories incl. charge cable, box, tips.
 
 * [Aukey EP-T32](https://photos.app.goo.gl/yaqeC9pqAcpjELPC6) **$15** Box, case, tips included, no cable. Powerbeats Pro form factor.
 
 * [Apple/Beats Studio Buds](https://photos.app.goo.gl/4rFZyWe31RJEZMLc7) **$45** Excellent condition, no tips but I can try to find something generic to include. As shown, warranty is active until 9/7/23.
 
-* [Sony MDR-EX750BT](https://photos.app.goo.gl/mPvRYiphxaFogBMp8) **25** This form-factor has fallen out of vogue but it's actually still very practical/comfortable. Easy to take buds out and put them back in without keeping track of them. Appearance *and* sound remind me of MH750MH755, which is hinted at in the model name too.
+* [Sony MDR-EX750BT](https://photos.app.goo.gl/mPvRYiphxaFogBMp8) **$25** This form-factor has fallen out of vogue but it's actually still very practical/comfortable. Easy to take buds out and put them back in without keeping track of them. Appearance *and* sound remind me of MH750MH755, which is hinted at in the model name too.
+****
 ___
 
 # rbw-keebs
@@ -75,6 +76,20 @@ Rattlingblanketwoman's mechanical keyboard classifieds
 
 * [Epomaker TH-66 Pro](https://photos.app.goo.gl/1ZNbKphY8qrFD32F8) **$70** Completely unused (open box) with **3** choices of knob total. Comes with Monet MDA V2 keycap set, and the Flamingo linear switches. Stock cable and everything it would usually come with.
 
+* [Royal Kludge RK21](https://photos.app.goo.gl/KPSuxwe94AMxLnNP6) **$50** Can connect via dongle or Bluetooth, RGB, I have packed the case with cotton for acoustic reasons but I can remove that no problem. Stock keycaps, stock red switches. Removable bezel.
+
+* Coming soon: Drop Alt Low Profile w/ Seasalt Lemon linear switches, stock keycaps, and lubed stabs. **$70** I'd prpobably experiment with switches and keep this if that didn't mean having to make the switches in question 3 pin from 5.
+
+### Boards
+
+* Coming soon: Megalodon Doio Triple Knob 38% **$70**
+
+* Coming soon: Niz Plum Atom 68 (35g) - Will check exact features when I photograph **$TBA**
+
+* Coming soon: Niz Plum 75 (45g) - Will check exact features when I photograph **$TBA**
+
+* Coming soon: KBD67 Lite BLE - Smokey polycarbonate case. Case, board, stabs, no keycaps or switches **$80**
+
 ### Switches
 
 * [Gazzew Boba U4](https://photos.app.goo.gl/9QPnogSkxqiarfp16) **$30** for 67. Puts these at <50¢ per switch.
@@ -83,14 +98,14 @@ Rattlingblanketwoman's mechanical keyboard classifieds
 
 * [DEV/TTY MT3](https://photos.app.goo.gl/3b7hkpY2NbFyqm119) **$55** ABS, complete base set, I never used them because I thought all MT3 sets were PBT.
 
+* Coming soon: Russian legends Topre set, missing Esc and left control. **$TBA**
+
+* Coming soon: Susuwatari MT3 base set, used. **$50**
 ___
 
 # rbw-hw
 Rattlingblanketwoman's hardware classifieds
 
-* Same rules/guidelines as the [audio classifieds](#rbw-audio), read above.
-* Listings coming soon for this section.
+* Same [rules/guidelines](#guidelines) as above.
 
-* [Item](url) **$price**
-
-* [Item](url) **$price**
+* Coming soon: GX 1650 Low-profile **$140**
