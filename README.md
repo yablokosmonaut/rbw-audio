@@ -28,7 +28,7 @@ Rattlingblanketwoman's audio classifieds
 
 * [VE Pro Super Nova](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$50** You can see where the headstrap contacts the cups, no other visible wear to note. Pictured with Brainwavz perforated pads ($20 extra) either way comes with stock pads.
 * [Sennheiser HD560S](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$100** In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
-* [Fostex TR50P Modhouse Argon Mk3](https://photos.app.goo.gl/ZSPBEwcvUwK98oDj9) **$250** Sad to let these go, but with what's needed to drive them and rare use cases (have to be at a desk) they are not in budget. Has stock protein pads, ZMF protein pads, orange cable with 3.5mm termination, black cable with 1/4 inch termination, 3.5mm-1/4 inch adapter, and Alcantara suspension band. Box too. Condition may as well be open box.
+* ~~[Fostex TR50P Modhouse Argon Mk3](https://photos.app.goo.gl/ZSPBEwcvUwK98oDj9) **$250** Sad to let these go, but with what's needed to drive them and rare use cases (have to be at a desk) they are not in budget. Has stock protein pads, ZMF protein pads, orange cable with 3.5mm termination, black cable with 1/4 inch termination, 3.5mm-1/4 inch adapter, and Alcantara suspension band. Box too. Condition may as well be open box.~~
 
 ### IEMs and earbuds
 
