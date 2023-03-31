@@ -38,13 +38,13 @@ Rattlingblanketwoman's audio classifieds
 
 * [Penon Fan OG](https://photos.app.goo.gl/6GgVLTAdEYEJDRnu9) **$55** Stock accessories (cable, *many* tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.
 
-* [RikuBuds Grand Archer](https://photos.app.goo.gl/kxguAzdZojaSXTPe6) **$50** I consider this one of the biggest deals listed here. These are incredible buds. They are described as being upper-mid and treble focused but I feel like they cover the full spectrum very well.
+~~* [RikuBuds Grand Archer](https://photos.app.goo.gl/kxguAzdZojaSXTPe6) **$50** I consider this one of the biggest deals listed here. These are incredible buds. They are described as being upper-mid and treble focused but I feel like they cover the full spectrum very well.~~
 
 ### Sources (DAC/DAP/AMP)
 
 * [iFi Zen Blue DAC](https://photos.app.goo.gl/eutGcHVXjHG9RtwX6) **$100** I don't use any gear right now that would justify a dedicated DAC/AMP. Excellent condition, box, antenna, 5V power brick.
 
-* [Monolith Liquid Spark Amp](https://photos.app.goo.gl/dSwDT9X18w692ETG6) **$60** (combine with the OLDAC for $110) No blemishes or issues to mention, comes with power brick.
+* ~~[Monolith Liquid Spark Amp](https://photos.app.goo.gl/dSwDT9X18w692ETG6) **$60** (combine with the OLDAC for $110) No blemishes or issues to mention, comes with power brick.~~
 
 * [JDS Labs OLDAC](https://photos.app.goo.gl/CNLPwkNJEqtc8sv8A) **$55** (combine with Liquid Spark for $110) No blemishes or issues to mention, comes with power brick.
 
