@@ -26,7 +26,7 @@ Rattlingblanketwoman's audio classifieds
 
 ### Headphones
 
-* [VE Pro Super Nova](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$50** You can see where the headstrap contacts the cups, no other visible wear to note. Pictured with perforated pads but only comes with stock pads.
+* ~~[VE Pro Super Nova](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$50** You can see where the headstrap contacts the cups, no other visible wear to note. Pictured with perforated pads but only comes with stock pads.~~
 * [Sennheiser HD560S](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$100** In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
 * ~~[Fostex TR50P Modhouse Argon Mk3](https://photos.app.goo.gl/ZSPBEwcvUwK98oDj9) **$250** Sad to let these go, but with what's needed to drive them and rare use cases (have to be at a desk) they are not in budget. Has stock protein pads, ZMF protein pads, orange cable with 3.5mm termination, black cable with 1/4 inch termination, 3.5mm-1/4 inch adapter, and Alcantara suspension band. Box too. Condition may as well be open box.~~
 
@@ -38,7 +38,7 @@ Rattlingblanketwoman's audio classifieds
 
 * [Penon Fan OG](https://photos.app.goo.gl/6GgVLTAdEYEJDRnu9) **$55** Stock accessories (cable, *many* tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.
 
-~~* [RikuBuds Grand Archer](https://photos.app.goo.gl/kxguAzdZojaSXTPe6) **$50** I consider this one of the biggest deals listed here. These are incredible buds. They are described as being upper-mid and treble focused but I feel like they cover the full spectrum very well.~~
+* ~~[RikuBuds Grand Archer](https://photos.app.goo.gl/kxguAzdZojaSXTPe6) **$50** I consider this one of the biggest deals listed here. These are incredible buds. They are described as being upper-mid and treble focused but I feel like they cover the full spectrum very well.~~
 
 ### Sources (DAC/DAP/AMP)
 
@@ -46,11 +46,11 @@ Rattlingblanketwoman's audio classifieds
 
 * ~~[Monolith Liquid Spark Amp](https://photos.app.goo.gl/dSwDT9X18w692ETG6) **$60** (combine with the OLDAC for $110) No blemishes or issues to mention, comes with power brick.~~
 
-* [JDS Labs OLDAC](https://photos.app.goo.gl/CNLPwkNJEqtc8sv8A) **$55** (combine with Liquid Spark for $110) No blemishes or issues to mention, comes with power brick.
+* [JDS Labs OLDAC](https://photos.app.goo.gl/CNLPwkNJEqtc8sv8A) **$50** No blemishes or issues to mention, comes with power brick.
 
 * [DDHifi TC35i](https://photos.app.goo.gl/43QPkJmXT6KmD7LG8) **$15** It's an adapter, it works well.
 
-* [LG V35 ThinQ](https://photos.app.goo.gl/Xq4W9vszGpKT8Mmx5) **$55** It is an AT&T model, but can be flashed to an unbranded firmware or debloated using ADB commands. Battery life is great. Slight burn-in shown by nav bar, hence the photo of the "settings" screen to show shades of white. Overall very good condition indeed. There is nothing stopping this being used as phone/camera besides an excellent responsive DAP with a quad-DAC.
+* [LG V35 ThinQ](https://photos.app.goo.gl/Xq4W9vszGpKT8Mmx5) **$60** It is an AT&T model, but can be flashed to an unbranded firmware or debloated using ADB commands. Battery life is great. Slight burn-in shown by nav bar, hence the photo of the "settings" screen to show shades of white. Overall very good condition indeed. There is nothing stopping this being used as phone/camera besides an excellent responsive DAP with a quad-DAC.
 
 * [VentureCraft SounDroid Valoq](https://photos.app.goo.gl/tNeHFZK1dJbrDr2c9) **$120** I would recommend a new battery for this (circa $20 on AliX). A really fun player, a very firm power/volume knob, a jog wheel for navigation, balanced output, *very* sturdy, op-amps can be easily swapped using a hatch in the back. Condition is showing wear, including scuffs to the screen. Hopefully it goes to a collector who plans to use it. AKM4490 chip.
 
