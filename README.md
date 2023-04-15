@@ -26,7 +26,7 @@ Rattlingblanketwoman's audio classifieds
 
 ### Headphones
 
-* [Sennheiser HD560S](https://photos.app.goo.gl/tbgVABTy5Py1hca5A) **$95** In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
+* [Sennheiser HD560S](https://photos.google.com/share/AF1QipOe4RfGVWUpzqP9SXpbFZ02rAtEPf6VY9gZTpMA1XzDFDlijOCTwgTOy1YQaVjiog?key=azM3Ty1rQ1IxeUNoSEVYTmZ4UVlJdUxFeVdVZ2pR) **$95** In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
 
 * Coming soon: Corsair Void RGB Elite new in box
 
@@ -34,13 +34,15 @@ Rattlingblanketwoman's audio classifieds
 
 ### IEMs and earbuds
 
-* [Yanyin Canon](https://photos.app.goo.gl/xN6XJmoUeKBPmnaW7) **$220** Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
+* [Yanyin Canon](https://photos.google.com/share/AF1QipNPQTt-p5jrirVbVY_M36ZKbP_m9v63Sr73zO6BPe_14N5OVeDH2voIH_FuKMb5lw?key=ZzA1VTNrN1JvRFVqVmdEUXRQejdWUUQwUnhZaWJn) **$220** Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
 
-* [Penon Fan OG](https://photos.app.goo.gl/6GgVLTAdEYEJDRnu9) **$55** Stock accessories (cable, *many* tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.
+* ~~[Penon Fan OG](https://photos.google.com/share/AF1QipM8L2Uc4HhkS9VkbUm1Zg5yiyinDxHjOVrOVJwtjUi48GKFSdXmfK-Vkif3m090EQ?key=UHl3MFBhRFpENTF6VmoycVNfM19sZ0tNRWtDcnh3) **$55** Stock accessories (cable, *many* tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.~~
 
-* [Final E5000](https://photos.app.goo.gl/TX7T79v71i1DrCAL9) **$120** Top notch condition, accessories and box too. Needs a lot of power to drive due to low sensitivity. Sadly when I got it to a volume level that I was really enjoying it, my wife could hear it too.
+* [Final E5000](https://photos.google.com/share/AF1QipOJayqDZMaNDZ1NPD12qcr5iCYsce18zMg-dxGohucHiVW9BjL5Xr222OqugkUZgQ?key=TmhKbFRuQkoyN1ZjVGc2akxJTkVLazZyNUtGYWJB) **$120** Top notch condition, accessories and box too. Needs a lot of power to drive due to low sensitivity. Sadly when I got it to a volume level that I was really enjoying it, my wife could hear it too.
 
-* [Tin HiFi P1](https://photos.app.goo.gl/4QK5SFmatMZTiwRb8) **$80** Again, these need some power to sing, but have a great flat response that even so has good bass levels, but it does have sub-bass roll-off. Carrying box and accessories (one set of silicone tips missing, I *think* the L size).
+* [Tin HiFi P1](https://photos.google.com/share/AF1QipMWNhGvLR8WRiAV5GFQ26Lk4Hmll0Ic92f2IF2NrWBhxU7nEcW56gd1Ah1BoAMRTA?key=bElfdV9zeUVJQkN0b3dmc0V2QUVZYjFsTWRnUXdn) **$80** Again, these need some power to sing, but have a great flat response that even so has good bass levels, but it does have sub-bass roll-off. Carrying box and accessories (one set of silicone tips missing, I *think* the L size).
+
+* [KBEar F1](https://photos.google.com/share/AF1QipPCh4hf4wXD7Hctsvp9Wra_0NufsW_-3KwpsN0MxncE2ZLKiZULjYql8OF93FNYvw?key=LXRWYTVlY1JkVW5FdHc4WTVaZXBuTVRzaUcxTjF3) **$10** each, or $6 each as add-ons. Single BA. Amber has 1 pair of tips missing, smokey has everything.
 
 * Coming soon: NF Audio NE4 Revolution with box/accessories and all stock tuning plates *plus* a rare 4th tuning plate.
 
@@ -48,31 +50,31 @@ Rattlingblanketwoman's audio classifieds
 
 ### Sources (DAC/DAP/AMP)
 
-* [iFi Zen Blue DAC](https://photos.app.goo.gl/eutGcHVXjHG9RtwX6) **$100** I don't use any gear right now that would justify a dedicated DAC/AMP. Excellent condition, box, antenna, 5V power brick.
+* [iFi Zen Blue DAC](https://photos.google.com/share/AF1QipPQn4mpRBtzJDUeOPAXAbgC8WOiJJDwvCMWyEvvQPRHZ1D2n1-cGIlVJtHzeCM95w?key=Rk0td2ZFTE1Ed2pKOXozMXctci1zQ0N2MUUtczdn) **$100** I don't use any gear right now that would justify a dedicated DAC/AMP. Excellent condition, box, antenna, 5V power brick.
 
-* [JDS Labs OLDAC](https://photos.app.goo.gl/CNLPwkNJEqtc8sv8A) **$50** No blemishes or issues to mention, comes with power brick.
+* [JDS Labs OL DAC](https://photos.google.com/share/AF1QipMSvycc-DlPqKeYktfyMqxgEH9o8Ixe9rGIDeSbo9S6IDgObOUnGIqpi526paFEVw?key=TExzbU90S3gtUEpBbUg4bTI3Y1BLTlhnN1dnaGRB) **$50** No blemishes or issues to mention, comes with power brick.
 
-* [FiiO BTR7](https://photos.app.goo.gl/UuFvFXVumqa7ifhh9) **$125** My favorite sounding FiiO BT dongle to date, and with very usable controls/interface. Like new condition + box and all accessories
+* ~~[FiiO BTR7](https://photos.google.com/share/AF1QipOoakkPCGDMHd2_3Rshz6wObLtEIdI-cKD-kFbodAn-m4IQWeCTj_ExMJBDQxptIA?key=V3NkRUY3bFM5a1ljVDBybVlCcS1naUUtYmUyNW5n) **$125** My favorite sounding FiiO BT dongle to date, and with very usable controls/interface. Like new condition + box and all accessories~~
 
-* [DDHifi TC35i](https://photos.app.goo.gl/43QPkJmXT6KmD7LG8) **$15** It's an adapter, it works well.
+* ~~[DDHifi TC35i](https://photos.google.com/share/AF1QipOjTVpJxjOeG-rH8zOfiMyd1n0Vz3g_BUvP4dGSLu1VxwCqwHaHggVlcoZx5GRA6Q?key=MDNFc3Y4OE4tdTdiQkpFMHd6VzkwMTlTOUhfSkVB) **$15** It's an adapter, it works well.~~
 
-* [LG V35 ThinQ](https://photos.app.goo.gl/Xq4W9vszGpKT8Mmx5) **$60** It is an AT&T model, but can be flashed to an unbranded firmware or debloated using ADB commands. Battery life is great. Slight burn-in shown by nav bar, hence the photo of the "settings" screen to show shades of white. Overall very good condition indeed. There is nothing stopping this being used as phone/camera besides an excellent responsive DAP with a quad-DAC.
+* [LG V35 ThinQ](https://photos.google.com/share/AF1QipNFLlsn4N2qsOiyIf1dghRobM-UD7qYA5cIlQNpvGWYYazYvTdSALDyiopWR6mjSw?key=MDR4SlUzVEZkbDU1RWNWamhxMFk5R0FNNHhKUVR3) **$60** It is an AT&T model, but can be flashed to an unbranded firmware or debloated using ADB commands. Battery life is great. Slight burn-in shown by nav bar, hence the photo of the "settings" screen to show shades of white. Overall very good condition indeed. There is nothing stopping this being used as phone/camera besides an excellent responsive DAP with a quad-DAC.
 
-* [VentureCraft SounDroid Valoq](https://photos.app.goo.gl/tNeHFZK1dJbrDr2c9) **$120** I would recommend a new battery for this (circa $20 on AliX). A really fun player, a very firm power/volume knob, a jog wheel for navigation, balanced output, *very* sturdy, op-amps can be easily swapped using a hatch in the back. Condition is showing wear, including scuffs to the screen. Hopefully it goes to a collector who plans to use it. AKM4490 chip.
+* [VentureCraft SounDroid Valoq](https://photos.google.com/share/AF1QipNWe1tQaq63Mm-039L2Q9gK-eBD8R3VPxamwHH1A2drHMyRWklWcnoBFZX0gIY1-w?key=UVNFRjljbnhMV01QNmFndERuSmd2UkdRUXhiR0VR) **$120** I would recommend a new battery for this (circa $20 on AliX). A really fun player, a very firm power/volume knob, a jog wheel for navigation, balanced output, *very* sturdy, op-amps can be easily swapped using a hatch in the back. Condition is showing wear, including scuffs to the screen. Hopefully it goes to a collector who plans to use it. AKM4490 chip.
 
 ### Cables
 
-* [Youkamoo 4.4mm to XLR balanced cable](https://photos.app.goo.gl/4BWTHweRRc8CCb8w9) **12** *OR* $8 as an add-on. Nothing to really add here!
+* [Youkamoo 4.4mm to XLR balanced cable](https://photos.google.com/share/AF1QipP3ZRbogvbGO7kVog7faGH9T8uOqT6G7ZQmtxmY6F8KRJ2JeZSOsictIaf7qfUHFg?key=TXRTLTU5V0l5RVRJa3kwZlJ5U2paenJncVJ0dGN3) **12** *OR* $8 as an add-on. Nothing to really add here!
 
 ### Wireless buds and TWS
 
-* [Mifo O7](https://photos.app.goo.gl/pZBkQknoXNLvUX7D7) **$50** These are the version with the CNT dinamic driver. I highly recommend them for sound, comfort, and quality of build. The case alone is a step up from competitors. Comes with accessories incl. charge cable, box, tips.
+* [Mifo O7](https://photos.google.com/share/AF1QipMu4fgDt2wDKab5RO7HqtIscMryVJGWcsJDOUZUWNDY8fSdyWVsBQ1PW35GdvtDIA?key=T3hsUEl2c2VYcEMzNHgwV1FEVUR4NklnejZTam9n) **$50** These are the version with the CNT dynamic driver. I highly recommend them for sound, comfort, and quality of build. The case alone is a step up from competitors. Comes with accessories incl. charge cable, box, tips.
 
-* [Aukey EP-T32](https://photos.app.goo.gl/yaqeC9pqAcpjELPC6) **$15** Box, case, tips included, no cable. Powerbeats Pro form factor.
+* [Aukey EP-T32](https://photos.google.com/share/AF1QipND0RPSumTTxmlzMMs6c4SZvsUmszSB4ybTdnP0Q8H_OdaVskXe9lDBHU4lycdW-A?key=SDhfczNvUDJ2ZVhlQTFkTFpqTmFSUjJHU2VJRXZ3) **$15** Box, case, tips included, no cable. Powerbeats Pro form factor.
 
-* [Apple/Beats Studio Buds](https://photos.app.goo.gl/4rFZyWe31RJEZMLc7) **$45** Excellent condition, no tips but I can try to find something generic to include. As shown, warranty is active until 9/7/23.
+* [Apple/Beats Studio Buds](https://photos.google.com/share/AF1QipMyWm572wyLthWgqvTBnrfXa1n4SJ5NmLiyTqka5h-eCNZUn1K5titA7RGoHyepdw?key=V3o1cTFMa0ozTTk1clgxd01ITDJVbUtCMGRuZlhB) **$45** Excellent condition, no tips but I can try to find something generic to include. As shown, warranty is active until 9/7/23.
 
-* [Sony MDR-EX750BT](https://photos.app.goo.gl/mPvRYiphxaFogBMp8) **$25** This form-factor has fallen out of vogue but it's actually still very practical/comfortable. Easy to take buds out and put them back in without keeping track of them. Appearance *and* sound remind me of MH750MH755, which is hinted at in the model name too.
+* [Sony MDR-EX750BT](https://photos.google.com/share/AF1QipMp85kZCF_AJTKP9JEaAB2yQKwpAPHX9rX67o9NvmYsiuPWx3toPp15yDzqE0xmpA?key=TlhfWWRXWFN1ZVVjY1NLanl4eHdna3UxaUVDZHVB) **$25** This form-factor has fallen out of vogue but it's actually still very practical/comfortable. Easy to take buds out and put them back in without keeping track of them. Appearance *and* sound remind me of MH750MH755, which is hinted at in the model name too.
 
 ___
 
