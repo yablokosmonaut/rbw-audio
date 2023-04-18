@@ -38,7 +38,7 @@ Rattlingblanketwoman's audio classifieds
 
 * ~~[Penon Fan OG](https://photos.google.com/share/AF1QipM8L2Uc4HhkS9VkbUm1Zg5yiyinDxHjOVrOVJwtjUi48GKFSdXmfK-Vkif3m090EQ?key=UHl3MFBhRFpENTF6VmoycVNfM19sZ0tNRWtDcnh3) **$55** Stock accessories (cable, *many* tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.~~
 
-* [Final E5000](https://photos.google.com/share/AF1QipOJayqDZMaNDZ1NPD12qcr5iCYsce18zMg-dxGohucHiVW9BjL5Xr222OqugkUZgQ?key=TmhKbFRuQkoyN1ZjVGc2akxJTkVLazZyNUtGYWJB) **$120** Top notch condition, accessories and box too. Needs a lot of power to drive due to low sensitivity. Sadly when I got it to a volume level that I was really enjoying it, my wife could hear it too.
+* ~~[Final E5000](https://photos.google.com/share/AF1QipOJayqDZMaNDZ1NPD12qcr5iCYsce18zMg-dxGohucHiVW9BjL5Xr222OqugkUZgQ?key=TmhKbFRuQkoyN1ZjVGc2akxJTkVLazZyNUtGYWJB) **$120** Top notch condition, accessories and box too. Needs a lot of power to drive due to low sensitivity. Sadly when I got it to a volume level that I was really enjoying it, my wife could hear it too.~~
 
 * [Tin HiFi P1](https://photos.google.com/share/AF1QipMWNhGvLR8WRiAV5GFQ26Lk4Hmll0Ic92f2IF2NrWBhxU7nEcW56gd1Ah1BoAMRTA?key=bElfdV9zeUVJQkN0b3dmc0V2QUVZYjFsTWRnUXdn) **$80** Again, these need some power to sing, but have a great flat response that even so has good bass levels, but it does have sub-bass roll-off. Carrying box and accessories (one set of silicone tips missing, I *think* the L size).
 
