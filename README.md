@@ -95,23 +95,23 @@ Rattlingblanketwoman's mechanical keyboard classifieds
 
 * Coming soon: Megalodon Doio Triple Knob 38% **$70**
 
-* Coming soon: Niz Plum Atom 68 (35g) - Will check exact features when I photograph **$TBA**
+* [Niz Plum Atom 68 (50g)](https://photos.google.com/share/AF1QipOrwd38A2HqTe0FOX_ivX_eCFniT4vFE_BrCSIlNGjxznJ5R8K-W0UoCbzpftGCIw?key=TFhkbTdMNEVIekVveW9qRnRFazZRVDlybTdGV1B3) **$100** This one has bluetooth. It does not have stock keycaps (although stock spacebar is included. BUT it DOES come with the base set of CannonCaps Black on Grey!) This one is easily the closest to Topre out the Niz boards listed here. Unfortunately it uses costar stabilizers.
 
-* Coming soon: Niz Plum 75 (45g) - Will check exact features when I photograph **$TBA**
+* [Niz Plum Atom 68 (35g)](https://photos.google.com/share/AF1QipPoA5zHfFpbKhQIVYYuM4cQAU2Mqx-CKEXsCqotqoXENkhjCuYEVYOkMlJZOXhEwQ?key=MmNidlVvZ0RVdlVKWFhmMVRsNmNrbFFoejdzYWhR). **$75** Box, protector and accessories. White and grey stock caps. Not wireless.
+
+* [Niz Plum 75 EC Pro (45g)](https://photos.google.com/share/AF1QipMWM_ZF23zflgLrvhlNalX6dGYLohMVKRbfo7y4FiKS4ZseYI0ZnLW3hSQufNB5LQ?key=VkFKNjhtRjhIcFpWTk53YzVERHF5YXRRMV9Iakh3) - **$75** Black, this one *does* have Bluetooth. Box and accessories too.
 
 * Coming soon: KBD67 Lite BLE - Smokey polycarbonate case. Case, board, stabs, no keycaps or switches **$80**
 
 ### Switches
 
-* [Gazzew Boba U4](https://photos.app.goo.gl/9QPnogSkxqiarfp16) **$26.50** for 67. Puts these at ≈40¢ per switch.
+* ~~[Gazzew Boba U4](https://photos.app.goo.gl/9QPnogSkxqiarfp16) **$26.50** for 67. Puts these at ≈40¢ per switch.~~
 
 ### Keycaps
 
 * [DEV/TTY MT3](https://photos.app.goo.gl/3b7hkpY2NbFyqm119) **$55** ABS, complete base set, I never used them because I thought all MT3 sets were PBT.
 
-* Coming soon: Russian legends Topre set, missing Esc and left control. **$TBA**
-
-* Coming soon: Susuwatari MT3 base set, used. **$50**
+* [Susuwatari MT3](https://photos.google.com/share/AF1QipNApYX-vBQIJY7olVC2vR-Gxg6NR2YTbFZe7jE0yLwH8th4keOfG1mvOsNn7vQVrg?key=YVI2cXVPaVhEY09pRlRSa2MwVk9zSTJWOW5zall3) **$50** Base set, used. I'm not experienced at gauging shine, took some angle shots to help you decide. 
 ___
 
 # rbw-hw
