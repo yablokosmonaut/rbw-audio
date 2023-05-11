@@ -97,7 +97,7 @@ Rattlingblanketwoman's mechanical keyboard classifieds
 
 * [Niz Plum Atom 68 (50g)](https://photos.google.com/share/AF1QipOrwd38A2HqTe0FOX_ivX_eCFniT4vFE_BrCSIlNGjxznJ5R8K-W0UoCbzpftGCIw?key=TFhkbTdMNEVIekVveW9qRnRFazZRVDlybTdGV1B3) **$100** This one has bluetooth. It does not have stock keycaps (although stock spacebar is included. BUT it DOES come with the base set of CannonCaps Black on Grey!) This one is easily the closest to Topre out the Niz boards listed here. Unfortunately it uses costar stabilizers.
 
-* [Niz Plum Atom 68 (35g)](https://photos.google.com/share/AF1QipPoA5zHfFpbKhQIVYYuM4cQAU2Mqx-CKEXsCqotqoXENkhjCuYEVYOkMlJZOXhEwQ?key=MmNidlVvZ0RVdlVKWFhmMVRsNmNrbFFoejdzYWhR). **$75** Box, protector and accessories. White and grey stock caps. Not wireless.
+* [Niz Plum Atom 66 (35g)](https://photos.google.com/share/AF1QipPoA5zHfFpbKhQIVYYuM4cQAU2Mqx-CKEXsCqotqoXENkhjCuYEVYOkMlJZOXhEwQ?key=MmNidlVvZ0RVdlVKWFhmMVRsNmNrbFFoejdzYWhR). **$75** Box, protector and accessories. White and grey stock caps. Not wireless.
 
 * [Niz Plum 75 EC Pro (45g)](https://photos.google.com/share/AF1QipMWM_ZF23zflgLrvhlNalX6dGYLohMVKRbfo7y4FiKS4ZseYI0ZnLW3hSQufNB5LQ?key=VkFKNjhtRjhIcFpWTk53YzVERHF5YXRRMV9Iakh3) - **$75** Black, this one *does* have Bluetooth. Box and accessories too.
 
