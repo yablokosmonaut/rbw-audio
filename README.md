@@ -26,11 +26,11 @@ Rattlingblanketwoman's audio classifieds
 
 ### Headphones
 
-* [Sennheiser HD560S](https://photos.google.com/share/AF1QipOe4RfGVWUpzqP9SXpbFZ02rAtEPf6VY9gZTpMA1XzDFDlijOCTwgTOy1YQaVjiog?key=azM3Ty1rQ1IxeUNoSEVYTmZ4UVlJdUxFeVdVZ2pR) **$95** In excellent condition, original box, cable, velor pads, and 1/4 inch jack.
+* ~~[Sennheiser HD560S](https://photos.google.com/share/AF1QipOe4RfGVWUpzqP9SXpbFZ02rAtEPf6VY9gZTpMA1XzDFDlijOCTwgTOy1YQaVjiog?key=azM3Ty1rQ1IxeUNoSEVYTmZ4UVlJdUxFeVdVZ2pR) **$95** In excellent condition, original box, cable, velor pads, and 1/4 inch jack.~~
 
 * Coming soon: Corsair Void RGB Elite new in box
 
-* Coming soon: Audeze Mobius headphones with box and accessories
+* ~~Coming soon: Audeze Mobius headphones with box and accessories~~
 
 ### IEMs and earbuds
 
