@@ -46,7 +46,7 @@ Rattlingblanketwoman's audio classifieds
 
 * Coming soon: NF Audio NE4 Revolution with box/accessories and all stock tuning plates *plus* a rare 4th tuning plate.
 
-* Coming soon: NF Audio NM1 with box/accessories.
+* Coming soon: NF Audio NM2 with box/accessories.
 
 ### Sources (DAC/DAP/AMP)
 
@@ -58,7 +58,7 @@ Rattlingblanketwoman's audio classifieds
 
 * ~~[DDHifi TC35i](https://photos.google.com/share/AF1QipOjTVpJxjOeG-rH8zOfiMyd1n0Vz3g_BUvP4dGSLu1VxwCqwHaHggVlcoZx5GRA6Q?key=MDNFc3Y4OE4tdTdiQkpFMHd6VzkwMTlTOUhfSkVB) **$15** It's an adapter, it works well.~~
 
-* [LG V35 ThinQ](https://photos.google.com/share/AF1QipNFLlsn4N2qsOiyIf1dghRobM-UD7qYA5cIlQNpvGWYYazYvTdSALDyiopWR6mjSw?key=MDR4SlUzVEZkbDU1RWNWamhxMFk5R0FNNHhKUVR3) **$60** It is an AT&T model, but can be flashed to an unbranded firmware or debloated using ADB commands. Battery life is great. Slight burn-in shown by nav bar, hence the photo of the "settings" screen to show shades of white. Overall very good condition indeed. There is nothing stopping this being used as phone/camera besides an excellent responsive DAP with a quad-DAC.
+* ~~[LG V35 ThinQ](https://photos.google.com/share/AF1QipNFLlsn4N2qsOiyIf1dghRobM-UD7qYA5cIlQNpvGWYYazYvTdSALDyiopWR6mjSw?key=MDR4SlUzVEZkbDU1RWNWamhxMFk5R0FNNHhKUVR3) **$60** It is an AT&T model, but can be flashed to an unbranded firmware or debloated using ADB commands. Battery life is great. Slight burn-in shown by nav bar, hence the photo of the "settings" screen to show shades of white. Overall very good condition indeed. There is nothing stopping this being used as phone/camera besides an excellent responsive DAP with a quad-DAC.~~
 
 * [VentureCraft SounDroid Valoq](https://photos.google.com/share/AF1QipNWe1tQaq63Mm-039L2Q9gK-eBD8R3VPxamwHH1A2drHMyRWklWcnoBFZX0gIY1-w?key=UVNFRjljbnhMV01QNmFndERuSmd2UkdRUXhiR0VR) **$120** I would recommend a new battery for this (circa $20 on AliX). A really fun player, a very firm power/volume knob, a jog wheel for navigation, balanced output, *very* sturdy, op-amps can be easily swapped using a hatch in the back. Condition is showing wear, including scuffs to the screen. Hopefully it goes to a collector who plans to use it. AKM4490 chip.
 
@@ -99,7 +99,7 @@ Rattlingblanketwoman's mechanical keyboard classifieds
 
 * [Niz Plum Atom 66 (35g)](https://photos.google.com/share/AF1QipPoA5zHfFpbKhQIVYYuM4cQAU2Mqx-CKEXsCqotqoXENkhjCuYEVYOkMlJZOXhEwQ?key=MmNidlVvZ0RVdlVKWFhmMVRsNmNrbFFoejdzYWhR). **$75** Box, protector and accessories. White and grey stock caps. Not wireless.
 
-* [Niz Plum 75 EC Pro (45g)](https://photos.google.com/share/AF1QipMWM_ZF23zflgLrvhlNalX6dGYLohMVKRbfo7y4FiKS4ZseYI0ZnLW3hSQufNB5LQ?key=VkFKNjhtRjhIcFpWTk53YzVERHF5YXRRMV9Iakh3) - **$75** Black, this one *does* have Bluetooth. Box and accessories too.
+* ~~[Niz Plum 75 EC Pro (45g)](https://photos.google.com/share/AF1QipMWM_ZF23zflgLrvhlNalX6dGYLohMVKRbfo7y4FiKS4ZseYI0ZnLW3hSQufNB5LQ?key=VkFKNjhtRjhIcFpWTk53YzVERHF5YXRRMV9Iakh3) - **$75** Black, this one *does* have Bluetooth. Box and accessories too.~~
 
 * Coming soon: KBD67 Lite BLE - Smokey polycarbonate case. Case, board, stabs, no keycaps or switches **$80**
 
