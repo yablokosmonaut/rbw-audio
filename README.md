@@ -34,7 +34,7 @@ Rattlingblanketwoman's audio classifieds
 
 ### IEMs and earbuds
 
-* [Yanyin Canon](https://photos.google.com/share/AF1QipNPQTt-p5jrirVbVY_M36ZKbP_m9v63Sr73zO6BPe_14N5OVeDH2voIH_FuKMb5lw?key=ZzA1VTNrN1JvRFVqVmdEUXRQejdWUUQwUnhZaWJn) **$220** Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
+* [Yanyin Canon](https://photos.google.com/share/AF1QipNPQTt-p5jrirVbVY_M36ZKbP_m9v63Sr73zO6BPe_14N5OVeDH2voIH_FuKMb5lw?key=ZzA1VTNrN1JvRFVqVmdEUXRQejdWUUQwUnhZaWJn) **$215** Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
 
 * ~~[Penon Fan OG](https://photos.google.com/share/AF1QipM8L2Uc4HhkS9VkbUm1Zg5yiyinDxHjOVrOVJwtjUi48GKFSdXmfK-Vkif3m090EQ?key=UHl3MFBhRFpENTF6VmoycVNfM19sZ0tNRWtDcnh3) **$55** Stock accessories (cable, *many* tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.~~
 
@@ -44,9 +44,33 @@ Rattlingblanketwoman's audio classifieds
 
 * [KBEar F1](https://photos.google.com/share/AF1QipPCh4hf4wXD7Hctsvp9Wra_0NufsW_-3KwpsN0MxncE2ZLKiZULjYql8OF93FNYvw?key=LXRWYTVlY1JkVW5FdHc4WTVaZXBuTVRzaUcxTjF3) **$10** each, or $6 each as add-ons. Single BA. Amber has 1 pair of tips missing, smokey has everything.
 
-* Coming soon: NF Audio NE4 Revolution with box/accessories and all stock tuning plates *plus* a rare 4th tuning plate.
+* [Massive foam/gel selection of eartips](https://photos.google.com/share/AF1QipOfteOR7X-9J7TJpQjbZLjdzOX0A9ibqgcqXi9i83boJW80Vb0oHVxOaaHD4j_RTA?key=WUYyN05ybUlBZFRYZU5mdTJOWlNGVm83OVRZY3BB) **$45** or $40 bundled. Completely unused Monster gel sets, several sealed Comply foams (all L), some Newbees, some hybrid (seem to be L) and some sealed silicones too for good measure.
 
-* Coming soon: NF Audio NM2 with box/accessories.
+* [Sealed - 1More quad-driver in-ear earphones](https://photos.google.com/share/AF1QipOeXWry_SpW9ZAE5yo1B-aNi8AihG0kyR3a4A9Vj4NogTJIbHQ4Ei-pFy1x3hk0_g?key=VHpRUndqQ1plRTk2VTRFMHhtS3Y1N0YxZFA0dEZn) **$60** trying to price at 1/2 or below of new price, and these are still sold/in stock on Amazon and from 1More
+
+* [Sealed - RevoNext 202 open-back earphones](https://photos.google.com/share/AF1QipPZndIRDQv1poCK8IQM4IHmzRRPNUTAsLItVUUyd4NXfy4y-DDEp8TLuMumF0sNhA?key=NlNqM2VzdVJ1Q1pDNWtyUkZYekFCLTBLRlRNWkxR) **$20** or bundle for $15
+
+* [Sealed - TRN V90 (black, no mic)](https://photos.google.com/share/AF1QipPcBC72RsH1teUOWX4DmbCv2CB7Jh79hg0UE4-OuhzcgVoz8rZro7EKaeNZWuNXGA?key=T3lrUTlNN2pmMVhnZVMyWmVOcjMza0E1akl1N19B) **$30** or bundle for $25
+
+* [Noble Falcon Pro TWS](https://photos.google.com/share/AF1QipOw-Gr-rWiQbx34rzPjL55cPIVtAGPKr9L1QP0iF9mm54shyNeRDL1Qd6bZGVYizQ?key=UlB4WW9yQzZEZWl6aHhBUGVRdDA5ck9ZNTBoSjNR) **$150** no damage anywhere, full accessories *except for tips, no tips*.
+
+* [Sealed - LZ A6](https://photos.google.com/share/AF1QipPV2Q9hRv-KyFo1Slz92BkZg8Imgy5MQCPCondLlKBYPFzjP3BJgYC2OvUjxUZ18g?key=SmY4aVEtaXN3RWgyTlczNnI5TjlfcU4tYnJXSkNR) **$150** Looks like it sold at Penon or Linsoul for $310 when it was available, asking $150 sealed. Lots of nozzles to change tuning with, and a built in gain switch.
+ 
+* [Sealed - NiceHCK NX7 Pro](https://photos.google.com/share/AF1QipMk_Vid_f4ymMgTsl8ZT-TnV2umjxq_FraKR90PhMNLjINmJ00qpJU3cvWTTKvNDQ?key=SjE4VFQzdWpTQ1hLRnR6WXhxbzdkaFFmelI2YWl3) **$80** As with any of these sealed sets, sorry I can't give an impression of the sound. :man_shrugging:
+
+* [Used only 30 minutes: ANew X-One 1DD, 4BA, 3 tuning chips](https://photos.google.com/share/AF1QipPh0AYZK_wvc3ai4e3f3xJR11lFHRmzHfOSC7-dHowI5l6Zrm29rBOvlsNjxpEaxQ?key=emttOHFWNE12YlA3Vi04cEpNd08tS0laLTVFa0lB) **$150** These are being sold for over $300 new elsewhere, and seem interesting.
+
+* [Sealed - Tin T2 Pro](https://photos.google.com/share/AF1QipP2kqBV6wigVZ2ZocrBG8AfUP3FSflhAEEOYec18vP1aAE_F9DJXrI65DfD2qCm4Q?key=cFdPbkswN3FlZnZ0Rl9TUk9BMG1QeF9CNElDa3dR) **$20** or $15 bundled
+
+* [Sealed - Tin T3](https://photos.google.com/share/AF1QipNpZb0G_8sp-Ilqw5nUKFH--Ss2rfeR_1XzLl3Y3irkNN2eNXvgFk7ZuDZJi1Goyw?key=b3MtNHlMNGtld1UwcDlXWnF0OFZiZlA5Zy1OMERR) **$25** or bundle for $20
+
+* [Sealed - Tin T2 Plus](https://photos.google.com/share/AF1QipPG2TLaDED8VofCwyJqxftt_RzejtYPWickJyejIuBWijeUuDF_bmlNoYuEaQbBxg?key=ZG94RS1fX29KdnJUamF6RFFoZEtPbE1MOWNhRDh3) **$30** or bundle for $25
+
+* Coming soon: NF Audio NE4 Revolution **$250** with box/accessories and all stock tuning plates *plus* a rare 4th tuning plate.
+
+* Coming soon: 7Hz Legato, **$70** no carry case or box but all tips/filters/cable.
+
+* [NF Audio NM2](https://photos.google.com/share/AF1QipNSS8oLCGr-0hP7crQzIim4ZEie-QdVzESuEyak3jDZoXIAnpiiHZ5tPUkBLYCgjw?key=X3hfU3NEb1ZUN21JSzUwUERTTUJvQm00aUM2NzhB) **$50** with box/accessories.
 
 ### Sources (DAC/DAP/AMP)
 
