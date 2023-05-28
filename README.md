@@ -10,7 +10,7 @@ ___
 
 I understand F&F can be an trust issue and fully respect anyone's decision to avoid trading when they see it. For any open to persuasion on a case by case basis, I can at least offer the following assurances:
 
-* 58 confirmed trades on /avexchange as of 3/23/23. <a href="https://www.reddit.com/message/compose/?to=AVexchangeBot&subject=Feedback%20Check&message=Enter%20username%20below%20that%20you%20want%20to%20check:%0A%0Au/rattlingblanketwoman">(Check with AVExchangeBot now)</a>
+* 60 confirmed trades on /avexchange as of 3/23/23. <a href="https://www.reddit.com/message/compose/?to=AVexchangeBot&subject=Feedback%20Check&message=Enter%20username%20below%20that%20you%20want%20to%20check:%0A%0Au/rattlingblanketwoman">(Check with AVExchangeBot now)</a>
 * 47 confirmed trades on Head-Fi as of 3/23/23. <a href="https://www.head-fi.org/members/rattlingblanketwoman.535939/#classifieds-feedback">(Read feedback here)</a>
 * 24 confirmed trades on /hardwareswap as of 3/23/23.
 * 40 confirmed trades on /mechmarket as of 3/23/23.
