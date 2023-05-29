@@ -11,7 +11,7 @@ ___
 I understand F&F can be an trust issue and fully respect anyone's decision to avoid trading when they see it. For any open to persuasion on a case by case basis, I can at least offer the following assurances:
 
 * 60 confirmed trades on /avexchange as of 3/23/23. <a href="https://www.reddit.com/message/compose/?to=AVexchangeBot&subject=Feedback%20Check&message=Enter%20username%20below%20that%20you%20want%20to%20check:%0A%0Au/rattlingblanketwoman">(Check with AVExchangeBot now)</a>
-* 47 confirmed trades on Head-Fi as of 3/23/23. <a href="https://www.head-fi.org/members/rattlingblanketwoman.535939/#classifieds-feedback">(Read feedback here)</a>
+* 48 confirmed trades on Head-Fi as of 3/23/23. <a href="https://www.head-fi.org/members/rattlingblanketwoman.535939/#classifieds-feedback">(Read feedback here)</a>
 * 24 confirmed trades on /hardwareswap as of 3/23/23.
 * 40 confirmed trades on /mechmarket as of 3/23/23.
 * Mercari [profile](https://www.mercari.com/u/604653000/?sv=0)
@@ -29,6 +29,8 @@ Rattlingblanketwoman's audio classifieds
 * ~~[Sennheiser HD560S](https://photos.google.com/share/AF1QipOe4RfGVWUpzqP9SXpbFZ02rAtEPf6VY9gZTpMA1XzDFDlijOCTwgTOy1YQaVjiog?key=azM3Ty1rQ1IxeUNoSEVYTmZ4UVlJdUxFeVdVZ2pR) **$95** In excellent condition, original box, cable, velor pads, and 1/4 inch jack.~~
 
 * Coming soon: Corsair Void RGB Elite new in box
+
+* [Antlion ModMic](https://photos.google.com/share/AF1QipPdlvZsQSu9zfgUfVw9uQUqb5PmXriPbkc5RxDuJEHezy6aZOE-v-YyEDtcQpYRSw?key=MzdhQVdYaFlQVkg2ZDRITnQ1enJhYVVYZWZNZVVn) **$22** Excellent condition, case and accessories.
 
 * ~~Coming soon: Audeze Mobius headphones with box and accessories~~
 
@@ -48,17 +50,19 @@ Rattlingblanketwoman's audio classifieds
 
 * [Sealed - 1More quad-driver in-ear earphones](https://photos.google.com/share/AF1QipOeXWry_SpW9ZAE5yo1B-aNi8AihG0kyR3a4A9Vj4NogTJIbHQ4Ei-pFy1x3hk0_g?key=VHpRUndqQ1plRTk2VTRFMHhtS3Y1N0YxZFA0dEZn) **$60** trying to price at 1/2 or below of new price, and these are still sold/in stock on Amazon and from 1More
 
-* [Sealed - RevoNext 202 open-back earphones](https://photos.google.com/share/AF1QipPZndIRDQv1poCK8IQM4IHmzRRPNUTAsLItVUUyd4NXfy4y-DDEp8TLuMumF0sNhA?key=NlNqM2VzdVJ1Q1pDNWtyUkZYekFCLTBLRlRNWkxR) **$20** or bundle for $15
+* [Sealed - RevoNext NEX202 open-back earphones](https://photos.google.com/share/AF1QipPZndIRDQv1poCK8IQM4IHmzRRPNUTAsLItVUUyd4NXfy4y-DDEp8TLuMumF0sNhA?key=NlNqM2VzdVJ1Q1pDNWtyUkZYekFCLTBLRlRNWkxR) **$20** or bundle for $15
 
 * [Sealed - TRN V90 (black, no mic)](https://photos.google.com/share/AF1QipPcBC72RsH1teUOWX4DmbCv2CB7Jh79hg0UE4-OuhzcgVoz8rZro7EKaeNZWuNXGA?key=T3lrUTlNN2pmMVhnZVMyWmVOcjMza0E1akl1N19B) **$30** or bundle for $25
 
-* [Noble Falcon Pro TWS](https://photos.google.com/share/AF1QipOw-Gr-rWiQbx34rzPjL55cPIVtAGPKr9L1QP0iF9mm54shyNeRDL1Qd6bZGVYizQ?key=UlB4WW9yQzZEZWl6aHhBUGVRdDA5ck9ZNTBoSjNR) **$150** no damage anywhere, full accessories *except for tips, no tips*.
-
 * [Sealed - LZ A6](https://photos.google.com/share/AF1QipPV2Q9hRv-KyFo1Slz92BkZg8Imgy5MQCPCondLlKBYPFzjP3BJgYC2OvUjxUZ18g?key=SmY4aVEtaXN3RWgyTlczNnI5TjlfcU4tYnJXSkNR) **$150** Looks like it sold at Penon or Linsoul for $310 when it was available, asking $150 sealed. Lots of nozzles to change tuning with, and a built in gain switch.
  
-* [Sealed - NiceHCK NX7 Pro](https://photos.google.com/share/AF1QipMk_Vid_f4ymMgTsl8ZT-TnV2umjxq_FraKR90PhMNLjINmJ00qpJU3cvWTTKvNDQ?key=SjE4VFQzdWpTQ1hLRnR6WXhxbzdkaFFmelI2YWl3) **$80** As with any of these sealed sets, sorry I can't give an impression of the sound. :man_shrugging:
+* [Sealed - NiceHCK NX7 Pro](https://photos.google.com/share/AF1QipMk_Vid_f4ymMgTsl8ZT-TnV2umjxq_FraKR90PhMNLjINmJ00qpJU3cvWTTKvNDQ?key=SjE4VFQzdWpTQ1hLRnR6WXhxbzdkaFFmelI2YWl3) **$80** As with any of these sealed sets, sorry I can't give an impression of the sound.
 
-* [Used only 30 minutes: ANew X-One 1DD, 4BA, 3 tuning chips](https://photos.google.com/share/AF1QipPh0AYZK_wvc3ai4e3f3xJR11lFHRmzHfOSC7-dHowI5l6Zrm29rBOvlsNjxpEaxQ?key=emttOHFWNE12YlA3Vi04cEpNd08tS0laLTVFa0lB) **$150** These are being sold for over $300 new elsewhere, and seem interesting.
+* [ANew X-One 1DD, 4BA, 3 tuning chips](https://photos.google.com/share/AF1QipMeqLbhwm6bUI2Z5DLOYJP645esU70bTWVvFeTF09496ELyTLMwSXbx90Dlh4bCBA?key=ZGRTX1E4VmxPcmR6ZFZ3c050NXh0eVpvamZWSG1R) **$150** These are being sold for over $300 new elsewhere. Used for 30 minutes.
+
+* [Audio Technica LS200](https://photos.google.com/share/AF1QipNLATfarveuHRhz38qUd0344IMqCtHlPO3kHGgXkxMJMkteeuVGykzismh-j5P1VQ?key=Ul9sT3ZPSEJaak1pX1lsSDVnREpzaXpWUnVLblJB) **$70** Warm sounding 2 BA set with memory wire ear guides, in red. Note: these use A2DC, not MMCX. Comes wtih 2 cables, one with mic one without.
+
+* [Whizzer Haydn A15 Pro](https://photos.google.com/share/AF1QipNvJSjW7ziQQ1K-mFLZByB4u6LBVfc2Xg5E5ENDISfS4QcKZ17UfPmfU3aPiGggbg?key=YU1OcHN1MXhER3NBTVhRZk9qU3ZObmtqSVF1NVJR) **$25** With box and full accessories.
 
 * [Sealed - Tin T2 Pro](https://photos.google.com/share/AF1QipP2kqBV6wigVZ2ZocrBG8AfUP3FSflhAEEOYec18vP1aAE_F9DJXrI65DfD2qCm4Q?key=cFdPbkswN3FlZnZ0Rl9TUk9BMG1QeF9CNElDa3dR) **$20** or $15 bundled
 
@@ -66,9 +70,9 @@ Rattlingblanketwoman's audio classifieds
 
 * [Sealed - Tin T2 Plus](https://photos.google.com/share/AF1QipPG2TLaDED8VofCwyJqxftt_RzejtYPWickJyejIuBWijeUuDF_bmlNoYuEaQbBxg?key=ZG94RS1fX29KdnJUamF6RFFoZEtPbE1MOWNhRDh3) **$30** or bundle for $25
 
-* Coming soon: NF Audio NE4 Revolution **$250** with box/accessories and all stock tuning plates *plus* a rare 4th tuning plate.
+* [NF Audio NE4 Revolution](https://photos.google.com/share/AF1QipOFBljYGfbZLEnqBH1aVQMqwUKB0GP41ggHQYs34jyjkdhgJM34ltlUp8SYrJPPtQ?key=eFh5RWt5YVc5NEVqT25aSkVueXNoUzlTUHk3Mmt3) **$250** with box/accessories (incl. promotional poster!) and all stock tuning plates *plus* a rare 4th tuning plate.
 
-* Coming soon: 7Hz Legato, **$70** no carry case or box but all tips/filters/cable.
+* [7Hz Legato](https://photos.google.com/share/AF1QipNr6xMjM6OJy_VdWmjoydAyrvo759VMXLPZa3rnj-nuqew2fX2tpEVETa_lY4dW7w?key=bi1CVWFpNmU0OHFFbEFnTHU1QTBYeTB2VkcyTlhn) **$70** no carry case or box but all tips/filters/cable.
 
 * [NF Audio NM2](https://photos.google.com/share/AF1QipNSS8oLCGr-0hP7crQzIim4ZEie-QdVzESuEyak3jDZoXIAnpiiHZ5tPUkBLYCgjw?key=X3hfU3NEb1ZUN21JSzUwUERTTUJvQm00aUM2NzhB) **$50** with box/accessories.
 
@@ -91,6 +95,8 @@ Rattlingblanketwoman's audio classifieds
 * [Youkamoo 4.4mm to XLR balanced cable](https://photos.google.com/share/AF1QipP3ZRbogvbGO7kVog7faGH9T8uOqT6G7ZQmtxmY6F8KRJ2JeZSOsictIaf7qfUHFg?key=TXRTLTU5V0l5RVRJa3kwZlJ5U2paenJncVJ0dGN3) **12** *OR* $8 as an add-on. Nothing to really add here!
 
 ### Wireless buds and TWS
+
+* [Noble Falcon Pro TWS](https://photos.google.com/share/AF1QipOw-Gr-rWiQbx34rzPjL55cPIVtAGPKr9L1QP0iF9mm54shyNeRDL1Qd6bZGVYizQ?key=UlB4WW9yQzZEZWl6aHhBUGVRdDA5ck9ZNTBoSjNR) **$150** no damage anywhere, full accessories *except for tips, no tips*.
 
 * [Mifo O7](https://photos.google.com/share/AF1QipMu4fgDt2wDKab5RO7HqtIscMryVJGWcsJDOUZUWNDY8fSdyWVsBQ1PW35GdvtDIA?key=T3hsUEl2c2VYcEMzNHgwV1FEVUR4NklnejZTam9n) **$50** These are the version with the CNT dynamic driver. I highly recommend them for sound, comfort, and quality of build. The case alone is a step up from competitors. Comes with accessories incl. charge cable, box, tips.
 
