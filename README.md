@@ -52,7 +52,7 @@ Rattlingblanketwoman's audio classifieds
 
 * [Sealed - RevoNext NEX202 open-back earphones](https://photos.google.com/share/AF1QipPZndIRDQv1poCK8IQM4IHmzRRPNUTAsLItVUUyd4NXfy4y-DDEp8TLuMumF0sNhA?key=NlNqM2VzdVJ1Q1pDNWtyUkZYekFCLTBLRlRNWkxR) **$20** or bundle for $15
 
-* [Sealed - TRN V90 (black, no mic)](https://photos.google.com/share/AF1QipPcBC72RsH1teUOWX4DmbCv2CB7Jh79hg0UE4-OuhzcgVoz8rZro7EKaeNZWuNXGA?key=T3lrUTlNN2pmMVhnZVMyWmVOcjMza0E1akl1N19B) **$30** or bundle for $25
+* ~~[Sealed - TRN V90 (black, no mic)](https://photos.google.com/share/AF1QipPcBC72RsH1teUOWX4DmbCv2CB7Jh79hg0UE4-OuhzcgVoz8rZro7EKaeNZWuNXGA?key=T3lrUTlNN2pmMVhnZVMyWmVOcjMza0E1akl1N19B) **$30** or bundle for $25~~
 
 * [Sealed - LZ A6](https://photos.google.com/share/AF1QipPV2Q9hRv-KyFo1Slz92BkZg8Imgy5MQCPCondLlKBYPFzjP3BJgYC2OvUjxUZ18g?key=SmY4aVEtaXN3RWgyTlczNnI5TjlfcU4tYnJXSkNR) **$150** Looks like it sold at Penon or Linsoul for $310 when it was available, asking $150 sealed. Lots of nozzles to change tuning with, and a built in gain switch.
  
@@ -62,23 +62,23 @@ Rattlingblanketwoman's audio classifieds
 
 * [Audio Technica LS200](https://photos.google.com/share/AF1QipNLATfarveuHRhz38qUd0344IMqCtHlPO3kHGgXkxMJMkteeuVGykzismh-j5P1VQ?key=Ul9sT3ZPSEJaak1pX1lsSDVnREpzaXpWUnVLblJB) **$70** Warm sounding 2 BA set with memory wire ear guides, in red. Note: these use A2DC, not MMCX. Comes wtih 2 cables, one with mic one without.
 
-* [Whizzer Haydn A15 Pro](https://photos.google.com/share/AF1QipNvJSjW7ziQQ1K-mFLZByB4u6LBVfc2Xg5E5ENDISfS4QcKZ17UfPmfU3aPiGggbg?key=YU1OcHN1MXhER3NBTVhRZk9qU3ZObmtqSVF1NVJR) **$25** With box and full accessories.
+* ~~[Whizzer Haydn A15 Pro](https://photos.google.com/share/AF1QipNvJSjW7ziQQ1K-mFLZByB4u6LBVfc2Xg5E5ENDISfS4QcKZ17UfPmfU3aPiGggbg?key=YU1OcHN1MXhER3NBTVhRZk9qU3ZObmtqSVF1NVJR) **$25** With box and full accessories.~~
 
 * [Sealed - Tin T2 Pro](https://photos.google.com/share/AF1QipP2kqBV6wigVZ2ZocrBG8AfUP3FSflhAEEOYec18vP1aAE_F9DJXrI65DfD2qCm4Q?key=cFdPbkswN3FlZnZ0Rl9TUk9BMG1QeF9CNElDa3dR) **$20** or $15 bundled
 
-* [Sealed - Tin T3](https://photos.google.com/share/AF1QipNpZb0G_8sp-Ilqw5nUKFH--Ss2rfeR_1XzLl3Y3irkNN2eNXvgFk7ZuDZJi1Goyw?key=b3MtNHlMNGtld1UwcDlXWnF0OFZiZlA5Zy1OMERR) **$25** or bundle for $20
+* ~~[Sealed - Tin T3](https://photos.google.com/share/AF1QipNpZb0G_8sp-Ilqw5nUKFH--Ss2rfeR_1XzLl3Y3irkNN2eNXvgFk7ZuDZJi1Goyw?key=b3MtNHlMNGtld1UwcDlXWnF0OFZiZlA5Zy1OMERR) **$25** or bundle for $20~~
 
 * [Sealed - Tin T2 Plus](https://photos.google.com/share/AF1QipPG2TLaDED8VofCwyJqxftt_RzejtYPWickJyejIuBWijeUuDF_bmlNoYuEaQbBxg?key=ZG94RS1fX29KdnJUamF6RFFoZEtPbE1MOWNhRDh3) **$30** or bundle for $25
 
 * [NF Audio NE4 Revolution](https://photos.google.com/share/AF1QipOFBljYGfbZLEnqBH1aVQMqwUKB0GP41ggHQYs34jyjkdhgJM34ltlUp8SYrJPPtQ?key=eFh5RWt5YVc5NEVqT25aSkVueXNoUzlTUHk3Mmt3) **$250** with box/accessories (incl. promotional poster!) and all stock tuning plates *plus* a rare 4th tuning plate.
 
-* [7Hz Legato](https://photos.google.com/share/AF1QipNr6xMjM6OJy_VdWmjoydAyrvo759VMXLPZa3rnj-nuqew2fX2tpEVETa_lY4dW7w?key=bi1CVWFpNmU0OHFFbEFnTHU1QTBYeTB2VkcyTlhn) **$70** no carry case or box but all tips/filters/cable.
+* ~~[7Hz Legato](https://photos.google.com/share/AF1QipNr6xMjM6OJy_VdWmjoydAyrvo759VMXLPZa3rnj-nuqew2fX2tpEVETa_lY4dW7w?key=bi1CVWFpNmU0OHFFbEFnTHU1QTBYeTB2VkcyTlhn) **$70** no carry case or box but all tips/filters/cable.~~
 
 * [NF Audio NM2](https://photos.google.com/share/AF1QipNSS8oLCGr-0hP7crQzIim4ZEie-QdVzESuEyak3jDZoXIAnpiiHZ5tPUkBLYCgjw?key=X3hfU3NEb1ZUN21JSzUwUERTTUJvQm00aUM2NzhB) **$50** with box/accessories.
 
 ### Sources (DAC/DAP/AMP)
 
-* [iFi Zen Blue DAC](https://photos.google.com/share/AF1QipPQn4mpRBtzJDUeOPAXAbgC8WOiJJDwvCMWyEvvQPRHZ1D2n1-cGIlVJtHzeCM95w?key=Rk0td2ZFTE1Ed2pKOXozMXctci1zQ0N2MUUtczdn) **$100** I don't use any gear right now that would justify a dedicated DAC/AMP. Excellent condition, box, antenna, 5V power brick.
+* ~~[iFi Zen Blue DAC](https://photos.google.com/share/AF1QipPQn4mpRBtzJDUeOPAXAbgC8WOiJJDwvCMWyEvvQPRHZ1D2n1-cGIlVJtHzeCM95w?key=Rk0td2ZFTE1Ed2pKOXozMXctci1zQ0N2MUUtczdn) **$100** I don't use any gear right now that would justify a dedicated DAC/AMP. Excellent condition, box, antenna, 5V power brick.~~
 
 * [JDS Labs OL DAC](https://photos.google.com/share/AF1QipMSvycc-DlPqKeYktfyMqxgEH9o8Ixe9rGIDeSbo9S6IDgObOUnGIqpi526paFEVw?key=TExzbU90S3gtUEpBbUg4bTI3Y1BLTlhnN1dnaGRB) **$50** No blemishes or issues to mention, comes with power brick.
 
