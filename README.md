@@ -38,9 +38,13 @@ Rattlingblanketwoman's audio classifieds
 
 * [Yanyin Canon](https://photos.google.com/share/AF1QipNPQTt-p5jrirVbVY_M36ZKbP_m9v63Sr73zO6BPe_14N5OVeDH2voIH_FuKMb5lw?key=ZzA1VTNrN1JvRFVqVmdEUXRQejdWUUQwUnhZaWJn) **$215** Take off $6 to skip the outer box. All stock accessories. One set of flip switches is reversed but works as labeled, no issues with build or sound.
 
-* ~~[Penon Fan OG](https://photos.google.com/share/AF1QipM8L2Uc4HhkS9VkbUm1Zg5yiyinDxHjOVrOVJwtjUi48GKFSdXmfK-Vkif3m090EQ?key=UHl3MFBhRFpENTF6VmoycVNfM19sZ0tNRWtDcnh3) **$55** Stock accessories (cable, *many* tips, case (to be frank, not the greatest stock cable). Beautiful stabilized wood.~~
+*  [Hifiman RE-262](https://photos.google.com/share/AF1QipOnjjOPesFW-yyk_WDOjfZhaljwXZ80u6A1o-lZBVzP08JNuyjVIM6unjYTIDoPvg?key=SDBTNzhWb0FqTHNpVWh0RmxCMTU3R3loVjZuRW5B) **$50** A pretty ancient set by now, but very natural/neutral/I like the mids. Comes in a pretty dope case with cable extension choices and tips. Can be worn down or up. Unusual appearance!
 
-* ~~[Final E5000](https://photos.google.com/share/AF1QipOJayqDZMaNDZ1NPD12qcr5iCYsce18zMg-dxGohucHiVW9BjL5Xr222OqugkUZgQ?key=TmhKbFRuQkoyN1ZjVGc2akxJTkVLazZyNUtGYWJB) **$120** Top notch condition, accessories and box too. Needs a lot of power to drive due to low sensitivity. Sadly when I got it to a volume level that I was really enjoying it, my wife could hear it too.~~
+* [Moondrop Lan](https://photos.google.com/share/AF1QipMBfk-kf3VmbHJc68Mkgw-lHQr8gje4HcK15mOyVFLOstKu0SKO4n27mswShBZRHg?key=eEItcV9UaUpFMEtaZVg4N1N6eGV2UnFtQUxLM1JB)**$25** or add on for $20
+
+* [Tangzu Wan'Er](https://photos.google.com/share/AF1QipMKjbqA1zx2wTTvI9XCQetJ7D89PItBipldfy77eRSF5z7K57i73paA0VvvvkLXZQ?key=M2cxUExrVjJJaGdqeWFSNFVvbUJoRUpPU1lRa2pB)**$15** or bundle for 10 For some reason I pictured it with the wrong cable, but it will come with its stock cable.
+
+* [HBB Blon Z300](https://photos.google.com/share/AF1QipOYGUtcC3wJafHM9dlM16MKyP89dpBfAiAX3YRwENxFN2P4hF_H8XVvxUcxIoeG1A?key=N2NsY3VNMkROWE5YV1Z4eWRQZXRiajVlX3JMaUlB)**$28** Barely listened to, despite being a huge Blon03 fan for some reason this wasn't really my jam.
 
 * [Tin HiFi P1](https://photos.google.com/share/AF1QipMWNhGvLR8WRiAV5GFQ26Lk4Hmll0Ic92f2IF2NrWBhxU7nEcW56gd1Ah1BoAMRTA?key=bElfdV9zeUVJQkN0b3dmc0V2QUVZYjFsTWRnUXdn) **$80** Again, these need some power to sing, but have a great flat response that even so has good bass levels, but it does have sub-bass roll-off. Carrying box and accessories (one set of silicone tips missing, I *think* the L size).
 
