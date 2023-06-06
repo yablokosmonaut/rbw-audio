@@ -72,11 +72,11 @@ Rattlingblanketwoman's audio classifieds
 
 ### Sources (DAC/DAP/AMP)
 
-* [JDS Labs OL DAC](https://photos.google.com/share/AF1QipMSvycc-DlPqKeYktfyMqxgEH9o8Ixe9rGIDeSbo9S6IDgObOUnGIqpi526paFEVw?key=TExzbU90S3gtUEpBbUg4bTI3Y1BLTlhnN1dnaGRB) **$50** No blemishes or issues to mention, comes with power brick.
+* [JDS Labs OL DAC](https://photos.google.com/share/AF1QipMSvycc-DlPqKeYktfyMqxgEH9o8Ixe9rGIDeSbo9S6IDgObOUnGIqpi526paFEVw?key=TExzbU90S3gtUEpBbUg4bTI3Y1BLTlhnN1dnaGRB) **$45** No blemishes or issues to mention, comes with power brick.
 
 * [F.Audio XS-02](https://photos.google.com/share/AF1QipO_tVCHRosIN5wPTTuJDBO_GBE0M58XDSXBN6SVw1tN-nWs1j0O-uwkJ9hRrAG1-Q?key=VGNwUnN3S3puSThjYkNqYXRSTFBqTjJ0T0dsZTVR) **$75** I love this player. It has an AKM4490 chip and great dynamics. I love the clicky buttons. You can swap the op-amps out very easily. It has a low and high gain port (both 3.5mm) and takes MicroSD cards and uses MicroUSB for charging. Holds a very good charge.
 
-* [VentureCraft SounDroid Valoq](https://photos.google.com/share/AF1QipNWe1tQaq63Mm-039L2Q9gK-eBD8R3VPxamwHH1A2drHMyRWklWcnoBFZX0gIY1-w?key=UVNFRjljbnhMV01QNmFndERuSmd2UkdRUXhiR0VR) **$120** I would recommend a new battery for this (circa $20 on AliX). A really fun player, a very firm power/volume knob, a jog wheel for navigation, balanced output, *very* sturdy, op-amps can be easily swapped using a hatch in the back. Condition is showing wear, including scuffs to the screen. Hopefully it goes to a collector who plans to use it. AKM4490 chip.
+* [VentureCraft SounDroid Valoq](https://photos.google.com/share/AF1QipNWe1tQaq63Mm-039L2Q9gK-eBD8R3VPxamwHH1A2drHMyRWklWcnoBFZX0gIY1-w?key=UVNFRjljbnhMV01QNmFndERuSmd2UkdRUXhiR0VR) **$100** I would recommend a new battery for this (circa $20 on AliX). A really fun player, a very firm power/volume knob, a jog wheel for navigation, balanced output, *very* sturdy, op-amps can be easily swapped using a hatch in the back. Condition is showing wear, including scuffs to the screen. Hopefully it goes to a collector who plans to use it. AKM4490 chip.
 
 ### Cables
 
