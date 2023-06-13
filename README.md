@@ -10,7 +10,7 @@ ___
 
 I understand F&F can be an trust issue and fully respect anyone's decision to avoid trading when they see it. For any open to persuasion on a case by case basis, I can at least offer the following assurances:
 
-* 60 confirmed trades on /avexchange as of 3/23/23. <a href="https://www.reddit.com/message/compose/?to=AVexchangeBot&subject=Feedback%20Check&message=Enter%20username%20below%20that%20you%20want%20to%20check:%0A%0Au/rattlingblanketwoman">(Check with AVExchangeBot now)</a>
+* 63 confirmed trades on /avexchange as of 3/23/23. <a href="https://www.reddit.com/message/compose/?to=AVexchangeBot&subject=Feedback%20Check&message=Enter%20username%20below%20that%20you%20want%20to%20check:%0A%0Au/rattlingblanketwoman">(Check with AVExchangeBot now)</a>
 * 48 confirmed trades on Head-Fi as of 3/23/23. <a href="https://www.head-fi.org/members/rattlingblanketwoman.535939/#classifieds-feedback">(Read feedback here)</a>
 * 24 confirmed trades on /hardwareswap as of 3/23/23.
 * 40 confirmed trades on /mechmarket as of 3/23/23.
@@ -34,11 +34,11 @@ Rattlingblanketwoman's audio classifieds
 
 *  [Hifiman RE-262](https://photos.google.com/share/AF1QipOnjjOPesFW-yyk_WDOjfZhaljwXZ80u6A1o-lZBVzP08JNuyjVIM6unjYTIDoPvg?key=SDBTNzhWb0FqTHNpVWh0RmxCMTU3R3loVjZuRW5B) **$50** A pretty ancient set by now, but very natural/neutral/I like the mids. Comes in a pretty dope case with cable extension choices and tips. Can be worn down or up. Unusual appearance!
 
-* [Moondrop Lan](https://photos.google.com/share/AF1QipMBfk-kf3VmbHJc68Mkgw-lHQr8gje4HcK15mOyVFLOstKu0SKO4n27mswShBZRHg?key=eEItcV9UaUpFMEtaZVg4N1N6eGV2UnFtQUxLM1JB)**$25** or add on for $20
+* ~~[Moondrop Lan](https://photos.google.com/share/AF1QipMBfk-kf3VmbHJc68Mkgw-lHQr8gje4HcK15mOyVFLOstKu0SKO4n27mswShBZRHg?key=eEItcV9UaUpFMEtaZVg4N1N6eGV2UnFtQUxLM1JB)**$25** or add on for $20~~
 
 * [Tangzu Wan'Er](https://photos.google.com/share/AF1QipMKjbqA1zx2wTTvI9XCQetJ7D89PItBipldfy77eRSF5z7K57i73paA0VvvvkLXZQ?key=M2cxUExrVjJJaGdqeWFSNFVvbUJoRUpPU1lRa2pB)**$15** or bundle for 10 For some reason I pictured it with the wrong cable, but it will come with its stock cable.
 
-* [HBB Blon Z300](https://photos.google.com/share/AF1QipOYGUtcC3wJafHM9dlM16MKyP89dpBfAiAX3YRwENxFN2P4hF_H8XVvxUcxIoeG1A?key=N2NsY3VNMkROWE5YV1Z4eWRQZXRiajVlX3JMaUlB)**$28** Barely listened to, despite being a huge Blon03 fan for some reason this wasn't really my jam.
+* ~~[HBB Blon Z300](https://photos.google.com/share/AF1QipOYGUtcC3wJafHM9dlM16MKyP89dpBfAiAX3YRwENxFN2P4hF_H8XVvxUcxIoeG1A?key=N2NsY3VNMkROWE5YV1Z4eWRQZXRiajVlX3JMaUlB)**$28** Barely listened to, despite being a huge Blon03 fan for some reason this wasn't really my jam.~~
 
 * [Tin HiFi P1](https://photos.google.com/share/AF1QipMWNhGvLR8WRiAV5GFQ26Lk4Hmll0Ic92f2IF2NrWBhxU7nEcW56gd1Ah1BoAMRTA?key=bElfdV9zeUVJQkN0b3dmc0V2QUVZYjFsTWRnUXdn) **$80** Again, these need some power to sing, but have a great flat response that even so has good bass levels, but it does have sub-bass roll-off. Carrying box and accessories (one set of silicone tips missing, I *think* the L size).
 
@@ -60,7 +60,7 @@ Rattlingblanketwoman's audio classifieds
 
 * [Sealed - Tin T2 Pro](https://photos.google.com/share/AF1QipP2kqBV6wigVZ2ZocrBG8AfUP3FSflhAEEOYec18vP1aAE_F9DJXrI65DfD2qCm4Q?key=cFdPbkswN3FlZnZ0Rl9TUk9BMG1QeF9CNElDa3dR) **$20** or $15 bundled
 
-* [Sealed - Tin T2 Plus](https://photos.google.com/share/AF1QipPG2TLaDED8VofCwyJqxftt_RzejtYPWickJyejIuBWijeUuDF_bmlNoYuEaQbBxg?key=ZG94RS1fX29KdnJUamF6RFFoZEtPbE1MOWNhRDh3) **$30** or bundle for $25
+* ~~[Sealed - Tin T2 Plus](https://photos.google.com/share/AF1QipPG2TLaDED8VofCwyJqxftt_RzejtYPWickJyejIuBWijeUuDF_bmlNoYuEaQbBxg?key=ZG94RS1fX29KdnJUamF6RFFoZEtPbE1MOWNhRDh3) **$30** or bundle for $25~~
 
 * [NF Audio NE4 Revolution](https://photos.google.com/share/AF1QipOFBljYGfbZLEnqBH1aVQMqwUKB0GP41ggHQYs34jyjkdhgJM34ltlUp8SYrJPPtQ?key=eFh5RWt5YVc5NEVqT25aSkVueXNoUzlTUHk3Mmt3) **$240** with box/accessories (incl. promotional poster!) and all stock tuning plates *plus* a rare 4th tuning plate.
 
@@ -80,19 +80,19 @@ Rattlingblanketwoman's audio classifieds
 
 ### Cables
 
-* [Youkamoo 4.4mm to XLR balanced cable](https://photos.google.com/share/AF1QipP3ZRbogvbGO7kVog7faGH9T8uOqT6G7ZQmtxmY6F8KRJ2JeZSOsictIaf7qfUHFg?key=TXRTLTU5V0l5RVRJa3kwZlJ5U2paenJncVJ0dGN3) **12** *OR* $8 as an add-on. Nothing to really add here!
+* ~~[Youkamoo 4.4mm to XLR balanced cable](https://photos.google.com/share/AF1QipP3ZRbogvbGO7kVog7faGH9T8uOqT6G7ZQmtxmY6F8KRJ2JeZSOsictIaf7qfUHFg?key=TXRTLTU5V0l5RVRJa3kwZlJ5U2paenJncVJ0dGN3) **12** *OR* $8 as an add-on. Nothing to really add here!~~
 
 ### Wireless buds and TWS
 
 * [Noble Falcon Pro TWS](https://photos.google.com/share/AF1QipOw-Gr-rWiQbx34rzPjL55cPIVtAGPKr9L1QP0iF9mm54shyNeRDL1Qd6bZGVYizQ?key=UlB4WW9yQzZEZWl6aHhBUGVRdDA5ck9ZNTBoSjNR) **$120** no damage anywhere, full accessories *except for tips, no tips*.
 
-* [Mifo O7](https://photos.google.com/share/AF1QipMu4fgDt2wDKab5RO7HqtIscMryVJGWcsJDOUZUWNDY8fSdyWVsBQ1PW35GdvtDIA?key=T3hsUEl2c2VYcEMzNHgwV1FEVUR4NklnejZTam9n) **$45** These are the version with the CNT dynamic driver. I highly recommend them for sound, comfort, and quality of build. The case alone is a step up from competitors. Comes with accessories incl. charge cable, box, tips.
+* ~~[Mifo O7](https://photos.google.com/share/AF1QipMu4fgDt2wDKab5RO7HqtIscMryVJGWcsJDOUZUWNDY8fSdyWVsBQ1PW35GdvtDIA?key=T3hsUEl2c2VYcEMzNHgwV1FEVUR4NklnejZTam9n) **$45** These are the version with the CNT dynamic driver. I highly recommend them for sound, comfort, and quality of build. The case alone is a step up from competitors. Comes with accessories incl. charge cable, box, tips.~~
 
-* [Aukey EP-T32](https://photos.google.com/share/AF1QipND0RPSumTTxmlzMMs6c4SZvsUmszSB4ybTdnP0Q8H_OdaVskXe9lDBHU4lycdW-A?key=SDhfczNvUDJ2ZVhlQTFkTFpqTmFSUjJHU2VJRXZ3) **$15** Box, case, tips included, no cable. Powerbeats Pro form factor.
+* ~~[Aukey EP-T32](https://photos.google.com/share/AF1QipND0RPSumTTxmlzMMs6c4SZvsUmszSB4ybTdnP0Q8H_OdaVskXe9lDBHU4lycdW-A?key=SDhfczNvUDJ2ZVhlQTFkTFpqTmFSUjJHU2VJRXZ3) **$15** Box, case, tips included, no cable. Powerbeats Pro form factor.~~
 
 * [Apple/Beats Studio Buds](https://photos.google.com/share/AF1QipMyWm572wyLthWgqvTBnrfXa1n4SJ5NmLiyTqka5h-eCNZUn1K5titA7RGoHyepdw?key=V3o1cTFMa0ozTTk1clgxd01ITDJVbUtCMGRuZlhB) **$40** Excellent condition, no tips but I can try to find something generic to include. As shown, warranty is active until 9/7/23.
 
-* [Sony MDR-EX750BT](https://photos.google.com/share/AF1QipMp85kZCF_AJTKP9JEaAB2yQKwpAPHX9rX67o9NvmYsiuPWx3toPp15yDzqE0xmpA?key=TlhfWWRXWFN1ZVVjY1NLanl4eHdna3UxaUVDZHVB) **$25** This form-factor has fallen out of vogue but it's actually still very practical/comfortable. Easy to take buds out and put them back in without keeping track of them. Appearance *and* sound remind me of MH750MH755, which is hinted at in the model name too.
+* ~~[Sony MDR-EX750BT](https://photos.google.com/share/AF1QipMp85kZCF_AJTKP9JEaAB2yQKwpAPHX9rX67o9NvmYsiuPWx3toPp15yDzqE0xmpA?key=TlhfWWRXWFN1ZVVjY1NLanl4eHdna3UxaUVDZHVB) **$25** This form-factor has fallen out of vogue but it's actually still very practical/comfortable. Easy to take buds out and put them back in without keeping track of them. Appearance *and* sound remind me of MH750MH755, which is hinted at in the model name too.~~
 
 ___
 
